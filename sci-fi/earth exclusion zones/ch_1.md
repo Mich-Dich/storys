@@ -1010,236 +1010,153 @@ Fleet Captain Threxil is no longer certain which part of him is in command.
 
 
 
-Shock still grips the bridge.
-Medical teams crowd close around Threxil. Instruments hover. Restraint fields hum at low power, ready but not yet engaged. No one quite dares to touch him.
-The Fleet Captain is breathing again.
-Uneven.
-Wet.
-Wrong.
-“Hold position,” the senior medic says quietly. “Captain, remain still. We are stabilizing—”
-Threxil’s head tilts.
-Slowly.
-Too smoothly.
-Every officer on the bridge feels it at once—that subtle but unmistakable wrongness in the motion. Not injured. Not disoriented.
-Listening.
-His mandibles part.
-What emerges is not Kryllathi command speech.
-The sound is older.
-Layered.
-Each syllable seems to scrape across the air like metal dragged over stone while something deeper vibrates beneath it—subharmonics that the mind does not want to process.
-Several crew members flinch instinctively.
-One junior officer actually whimpers.
-The translation systems fail immediately.
-The medic freezes. “Captain… what are you—”
-The word never finishes.
-Because the gravity on the bridge… shifts.
-Not the ship’s artificial gravity.
-Something else.
-Invisible pressure folds inward around the command pit.
-And then—
-the first officer lifts off the deck.
-There is no warning.
-No visible field.
-One moment her claws are planted firmly on the command floor.
-The next—
-she is rising.
-Slowly.
-Silently.
-Her limbs jerk in startled reflex. “Fleet Captain—?”
-She stops three meters above the deck.
-Pinned.
-Every joint locked outward as though held by enormous, invisible hands.
-Screams erupt across the bridge.
-“Restraint failure!”
-“No—no field readings!”
-“By the Triarchs—”
-Another officer tears free of the deck.
-Then another.
-Bodies slam gently—but firmly—against the bulkheads and ceiling, chitin striking metal with hollow, organic knocks. Not thrown.
-Placed.
-Deliberate.
-Precise.
-Threxil rises from the command rail.
-His wounds glisten wetly.
-One half of his thorax continues its impossible, uneven healing while the other remains open and raw.
-His eyes are wrong now.
-Too focused.
-Too… deep.
-When he speaks again, the ancient language pours out in a steady, reverent cadence.
-And the air itself seems to listen.
-Crew members begin to struggle in earnest now, limbs straining against nothing, mandibles clacking in rising panic.
-“Captain, you must—”
-The first officer’s voice cuts off sharply as invisible pressure tightens.
-Not enough to crush.
-Just enough to remind.
-Threxil turns toward her.
-Slowly.
-With terrible calm.
-For one fragile heartbeat—
-something of the old commander flickers behind his eyes.
-Horror.
-Awareness.
-A silent, internal scream.
-Then it is gone.
-His lower limbs lift slightly from the deck.
-He is not standing anymore.
-He is hovering.
-The ancient words deepen in tone, each syllable now carrying that same impossible subharmonic that makes the bridge lighting shiver.
-The pinned crew begin to move.
-Not by their own will.
-Bodies peel slowly from the walls and ceiling, drifting inward through the command space like weightless offerings.
-One by one.
-Carefully arranged.
-A circle forms around Threxil.
-They rotate slowly in the air, helpless limbs trembling, eyes wide with animal terror.
-“Fleet Captain… please…” someone whispers.
-Threxil does not acknowledge them.
-His attention has narrowed to the first officer suspended directly before him.
-She is trying very hard not to panic.
-Trying to remain Dominion.
-Trying to remain professional.
-Her voice shakes anyway.
-“…Threxil… fight this…”
-For just a fraction of a second—
-his claws twitch.
-Then the compulsion surges back stronger than before.
-The invisible force tightens.
-The first officer jerks sharply as her body is pulled closer to him.
-Too close.
-The bridge fills with the wet, organic sounds of chitin under catastrophic stress.
-Several crew members begin screaming in earnest now, the disciplined veneer of the Dominion finally cracking under the weight of the impossible.
-Threxil’s movements remain slow.
-Reverent.
-Methodical.
-All the while, the ancient language continues to flow from his mandibles in a steady, ritual cadence.
-Not rage.
-Not frenzy.
-Something far worse.
-Devotion.
-Pieces of broken chitin and dark biological fluid drift slowly in the air between them.
-And then—
-with horrifying gentleness—
-the invisible force begins moving the floating crew closer.
-Rotating them.
-Positioning them.
-As if arranging witnesses.
-Or participants.
-Deep inside the Fleet Captain’s mind, the last rational fragment of Threxil is still screaming.
-But his body—
-and the thing now coiled tightly around his thoughts—
-are no longer listening.
-
-
-
-
-
-
-
-The last fragment of order dies quietly.
-Not with a scream.
-Not with a system failure.
-But with a sound the fleet has never heard before.
-Threxil’s voice deepens.
-The ancient language no longer merely vibrates the air inside the command bridge. Now it carries—broadcast without transmission—through the void itself.
-Across the Kryllathi formation, crews freeze at their stations.
-At first, no one understands why.
-On the cruiser *Iron Mandate*, a weapons officer pauses mid-adjustment, mandibles twitching in irritation.
-Then his feet leave the deck.
-Not violently.
-Gently.
-Like gravity has simply… forgotten him.
-On the carrier *Grasp of Victory*, three technicians rise in perfect unison from a maintenance trench. Their tools clatter uselessly to the deck as their bodies lift toward the ceiling.
-Panic erupts shipwide.
-“Gravity failure—!”
-“No—local only—!”
+Medical officers close around Fleet Captain Threxil, their movements quick but careful. The bridge crew stands frozen in disciplined shock, each officer fighting the instinct to stare.
+The Fleet Captain remains hunched against the command rail.
+The torn chitin along his thorax glistens wetly under the bridge lighting. One section continues its unnatural regeneration, new growth creeping slowly across exposed tissue. The other remains raw and open, edges trembling as if reality itself cannot decide what shape the wound should hold.
+“Hold him steady,” the senior medical officer says.
+Two attendants move closer.
+Threxil lifts his head.
+For a brief, fragile moment, his primary eyes are clear.
+Fear lives there now. Real fear.
+“Withdraw the fleet,” he says quietly, voice rough with pain and effort. “Full burn. This phenomenon—”
+The words stop.
+Not because he chooses silence.
+Because something interrupts him.
+It begins as a pressure behind his eyes.
+Then in his spine.
+Then everywhere at once.
+The bridge lighting flickers again.
+Longer this time.
+The shadows stretch across the deck in directions that do not match the light sources.
+The medical officer reaches forward.
+“Captain, you are experiencing—”
+The Fleet Captain rises.
+No one sees the moment his feet leave the deck.
+One instant he is leaning against the rail.
+The next he is suspended half a meter above it.
+Perfectly still.
+A collective intake of breath spreads across the bridge.
+The medical officer reaches for him.
+“Captain—”
+Every officer on the command deck lifts into the air.
+It happens without visible force.
+Without warning.
+Without resistance.
+Bodies rise from command chairs and tactical pits, pulled upward as though gravity itself has been rewritten. Some strike the ceiling with sharp impacts of chitin against alloy. Others are dragged sideways and pinned against bulkheads.
+Weapons clatter uselessly across the floor as security personnel lose their footing.
+Panic finally cracks through the discipline.
+“Gravitational surge!”
+“Compensators are stable—this is not—”
 “What is happening—”
-The screaming spreads.
-Because it is not just one ship.
-It is all of them.
-Hundreds of Kryllathi across the task force begin to rise.
-Pinned.
-Spread.
-Held by something that does not register on any instrument the Dominion has ever built.
-Then—
-the movement begins.
-Bodies drift toward bulkheads.
-Not colliding.
-Phasing.
-The first officer on the destroyer *Claw of Judgment* watches in pure, incomprehensible horror as her navigation crew passes slowly through the armored inner hull like ghosts moving through fog.
-No breach.
-No decompression.
-No alarms.
-They simply… go through.
-Out into open space.
-They should die instantly.
-They do not.
-Their limbs thrash in silent, vacuum panic—but their bodies do not rupture. Their internal fluids do not boil. Their eyes remain wide and wet and horribly alive.
-They are being… preserved.
-Moved.
-Across the black between ships, hundreds of living Kryllathi now drift through vacuum in slow, helpless streams.
-From every vessel.
-Drawn inward.
-Toward the command ship.
-Toward Threxil.
-On the flagship bridge, officers who remain conscious begin screaming in earnest now as the forward bulkhead… stretches.
-Not opens.
-Stretches.
-Metal flows outward like soft wax under invisible heat, the command chamber widening, expanding, making space where no space should exist.
-The rotating circle of pinned officers is forced outward as the chamber grows.
-Threxil hovers at the center of it all, ancient syllables pouring endlessly from his mandibles, each word bending geometry a little further out of joint.
-And then the first of the external crew arrives.
-They do not enter through doors.
-They come through the hull.
-Through the walls.
-Through the very structure of the ship itself.
-One by one at first.
-Then dozens.
-Then hundreds.
-Living bodies drift into the bridge in silent, weightless streams, eyes wild, limbs spasming, mouths open in soundless terror.
-They begin to orbit.
-A growing sphere of living Kryllathi slowly forms around their Fleet Captain.
-Spinning.
-Breathing.
-Crying.
-Alive.
-The smell of fear pheromones saturates the air.
-Inside Threxil’s mind, something vast and patient is paying very close attention now.
-His claws rise slowly.
-The ancient language shifts in tone.
-Lower.
-Hungrier.
-The sphere tightens.
-Bodies press closer together—not enough to crush, just enough that chitin begins to creak under the pressure. Limbs overlap. Mandibles scrape. Breathing becomes sharp and frantic.
-Still alive.
-Still conscious.
-Still aware.
-Then the first motion begins.
+The voices choke off as invisible pressure tightens.
+Pinned limbs tremble uselessly against the unseen force holding them.
+At the center of the bridge, Fleet Captain Threxil floats slowly higher.
+His limbs hang loose.
+His head tilts slightly to one side.
+When he speaks again, the voice that emerges from his throat is not entirely his.
+It carries layers.
+Depth.
+Resonance far beyond the limits of vocal anatomy.
+And the language is wrong.
+The sound of it makes several crew members recoil instinctively.
+Not because they understand it.
+Because something ancient in their nervous systems recognizes it.
+The words are thick and slow, as though dragged through deep water.
+Each syllable bends the air.
+The tactical displays flicker violently.
+Gravity readings spike in impossible directions.
+Space itself seems to flex.
+The pinned crew begin to struggle harder.
+“Captain!” someone shouts. “Fight it!”
+Threxil’s head turns slowly toward the first officer.
+Commander Vekral.
+The loyal second who has served beside him for fourteen campaigns.
+For a long moment, Threxil’s eyes seem almost aware.
+Then the other presence surges forward.
+Commander Vekral lifts off the wall.
+Not gently.
+He is ripped free and dragged through open air toward the center of the bridge.
+The invisible pressure holding the rest of the crew tightens further, forcing them to watch.
+Vekral thrashes, limbs striking against nothing.
+“Captain!” he snarls. “Threxil! Stop this!”
+The Fleet Captain drifts closer.
+Up close, the damage to his body is even worse.
+The half-healed wound along his thorax pulses slowly.
+The exposed section glistens.
+And something beneath the surface moves that should not exist inside living flesh.
+Threxil’s claw rises.
 Not fast.
-Never fast.
-One unfortunate technician near the inner layer jerks suddenly as invisible force takes hold of one of his outer limbs.
-There is a wet, fibrous sound.
-The limb does not tear free all at once.
-It is drawn out slowly.
+Not violent.
+Careful.
+Almost curious.
+He touches the edge of Vekral’s chest plate.
+The ancient language spills from his mouth again.
+Slow.
+Measured.
+Each syllable heavy with impossible meaning.
+The air ripples.
+Then the claw pushes inward.
+Chitin cracks.
+Vekral screams.
+The sound echoes through the bridge while the rest of the crew remains pinned helplessly against the walls and ceiling.
+Threxil does not rush.
+His claw works methodically between the plates of the commander’s armor.
+Pulling.
+Separating.
+Peeling.
+Biological fluid drips slowly through the air in thick globes that drift weightlessly before splashing against consoles and bulkheads.
+Vekral’s screams grow ragged.
+Somewhere along the outer wall, a young navigation officer begins sobbing uncontrollably.
+Threxil continues speaking in that impossible language.
+The tone almost reverent.
+The claw emerges holding something wet and pale.
+He studies it with quiet fascination.
+Then he turns.
+The pinned crew feel the invisible force shift.
+Their bodies slide across the walls and ceiling.
+Slowly.
 Carefully.
-Like something savoring resistance.
-The technician’s scream cuts through the bridge in a raw, animal wail that shatters what little discipline remains among the watching crew.
-Threxil does not look at him.
-His attention remains fixed somewhere… deeper.
-More bodies begin to twitch within the rotating sphere.
-Precise.
-Selective.
-Methodical.
-Pieces of living Kryllathi begin to drift slowly through the air between the trapped bodies—guided by invisible currents—arranged in slow, spiraling patterns around the hovering Fleet Captain.
-Not random.
-Never random.
-Intentional.
-Ritual.
-And still the ancient language continues to pour from Threxil’s mandibles without pause.
-Inside him, the last rational fragment of the Kryllathi commander is no longer screaming.
-It is begging.
-Because somewhere beyond the veil of normal space—
-something vast has begun to lean closer.
-And it is very, very pleased.
+Like pieces being arranged on a board.
+One by one they are pulled from the surfaces and lowered into the center of the bridge.
+They do not regain control of their limbs.
+They simply float where he places them.
+Around him.
+In a perfect circle.
+Rotating slowly.
+Helpless witnesses orbiting their captain.
+Vekral still hangs before him, barely conscious now, chest cavity torn open in jagged layers.
+Threxil examines the piece of flesh in his claw.
+Then, with solemn precision, he reaches toward the nearest floating officer.
+The officer’s mandibles clamp shut instinctively.
+The invisible pressure tightens.
+Their jaw is forced open.
+Slowly.
+Relentlessly.
+Threxil places the offering inside.
+The officer chokes.
+Weeps.
+The Fleet Captain continues.
+Another piece taken from Vekral.
+Another officer forced to receive it.
+The circle of floating crew turns slowly around him, a silent, helpless procession.
+When Vekral finally stops screaming, Threxil tilts his head again.
+The attention from beyond presses closer.
+Approval hums at the edge of perception.
+So he changes the offering.
+His claw slides beneath his own damaged thoracic plate.
+The newly grown chitin cracks away easily.
+He tears a fragment free.
+No pain crosses his face.
+Only quiet devotion.
+The piece is placed into the mouth of another crew member.
+The circle continues its slow rotation.
+Blood and chitin fragments drift through the command deck like obscene snow.
+And all the while the Fleet Captain speaks the ancient language.
+Each word bending the air.
+Each syllable tugging faintly at the structure of space itself.
+The crew cannot move.
+They cannot look away.
+They can only orbit their captain as the ritual continues, deeper and deeper into something the Dominion was never meant to witness.
 
 
 
@@ -1247,181 +1164,149 @@ And it is very, very pleased.
 
 
 
-Time does not unwind.
-It snaps.
-One heartbeat the bridge is a cathedral of floating bodies and wet ritual geometry—
-—and the next—
-everything is gone.
-No widening bulkheads.
-No orbiting sphere of living crew.
-No drifting fragments in the air.
-Fleet Captain Threxil is standing at the command rail exactly where he had been minutes before.
-Across the fleet, officers and technicians are back at their stations.
-Whole.
-Intact.
-Unbroken.
-For one impossible second, nothing moves.
-Then the screaming begins.
-Not from one ship.
-From all of them.
-Across the task force, hardened Kryllathi warriors collapse where they stand, claws scrabbling across consoles, mandibles clattering in raw, animal panic.
-“IT WAS REAL—”
-“MAKE IT STOP—”
-“BY THE TRIARCHS—”
-Medical alarms erupt across multiple vessels as stress indicators spike into catastrophic ranges.
-Bodies are whole.
-Every limb restored.
-Every plate regrown.
-But the pain—
-The pain did not reset.
-Crew across the fleet clutch at limbs that are no longer missing. They recoil from phantom pressure still crushing their thoraxes. Several are frantically digging their claws between their own chitin plates as if trying to escape something that is no longer visibly there.
-On the flagship bridge, the senior medic stumbles backward in open horror.
-“Fleet Captain…?”
-Threxil is breathing hard.
-Too hard.
-His posture is rigid with a strain that has nothing to do with physical injury.
-Slowly—very slowly—his claws lift into his own field of vision.
-They are steady.
-Whole.
-Uninjured.
-But they are trembling anyway.
-Memory is not supposed to feel like this.
-Around him, the bridge is in controlled collapse. Officers are shouting over one another, some trying desperately to restore order, others very clearly on the edge of losing themselves completely.
-Threxil hears none of it.
-Because inside his skull—
-something shifts.
-Not pain.
-Not quite.
-Awareness.
-Like the faint pressure of a vast gaze turning slightly in his direction.
-His breath catches.
-For the first time since entering the exclusion zone, true fear cuts cleanly through the Fleet Captain’s mind.
-Not for the fleet.
-Not for the mission.
-For himself.
-His mandibles part slightly as the realization finally, horribly locks into place.
-A whisper of thought that is entirely his own.
-Something is inside me.
-The clarity is sharp.
-Cold.
-Brief.
-His claws tighten slowly against the command rail as another foreign impulse coils quietly behind his thoughts—patient… waiting.
-Threxil understands two things with perfect, devastating certainty.
-He is no longer alone in his own mind.
-And whatever is sharing the space with him…
-…is not finished.
-The Fleet Captain tries to speak.
-Tries to warn them.
-But the ancient pressure inside his thoughts is already beginning to rise again.
 
 
 
-
-
-
-
-The pressure inside Threxil’s mind does not fade.
-It gathers.
-Around the fleet, order is fracturing by the second. Damage reports overlap with medical emergencies. Discipline is holding—but only barely, and only because the Kryllathi have spent millennia learning how to function while afraid.
-But this…
-This is not fear they were built to survive.
-“Fleet Captain,” the operations officer manages, voice shaking despite every effort at control, “multiple vessels reporting severe crew instability. Navigation recommends immediate withdrawal from anomaly space.”
-Withdrawal.
-Yes.
-That is correct.
-That is necessary.
-Threxil’s claws tighten on the command rail.
-“Yes,” he begins, and the word is unmistakably his own. “All ships—prepare to—”
-The second voice inside him moves.
-Not a sound.
-Not a thought.
-A pressure.
-His words die in his throat.
-Across the bridge, several officers freeze as the lighting flickers once—just once—like something enormous passed between the ship and reality for the briefest possible instant.
-Threxil is still fighting.
-It shows in the violent tremor running through his limbs.
-“Flee…” he forces out, the word distorted but still recognizably Kryllathi. “All vessels—withdraw—”
-His body lifts off the deck.
+Medical hands had barely touched the captain when the change returned.
+At first it was subtle.
+A tremor passing through his limbs.
+Not pain. Not seizure.
+Alignment.
+The medical officers froze as his body slowly lifted from the med cradle without thrusters, harness, or mechanical support. The restraints holding him down bent outward like softened metal.
+The captain did not look at them.
+His eyes were fixed somewhere far beyond the hull.
+Beyond the stars.
+And when he spoke again, the sound was worse than before.
+The language was deeper now. Older.
+The syllables did not simply vibrate through air.
+They seemed to **bend the space inside the bridge itself.**
+Every surface hummed in response.
+The first mate—still kneeling where the captain had forced him moments earlier—tried to speak, to issue orders, to break the spell of terror that had locked the remaining crew in place.
+But the captain raised a single limb.
+The air tightened.
+The first mate rose from the floor as if gravity had forgotten him.
+Then another crew member.
+Then another.
+One by one the bridge crew lifted from the deck.
+Not violently.
+Not even quickly.
+They simply **ceased belonging to the floor.**
+Their bodies drifted upward until they hung suspended along the walls and ceiling of the command chamber. Boots scraping helplessly against metal that offered no resistance.
+Someone screamed.
+The captain did not look at them.
+He continued speaking the impossible language, the words spilling out in rhythmic pulses.
+And with each phrase the pressure grew.
+Crew who tried to move found their limbs frozen in place. Not restrained by visible force—but by something deeper, as though the concept of movement itself had been removed from them.
+The captain’s head tilted slightly.
+Listening.
+Answering.
+Then the bridge lights dimmed.
+Not from power loss.
+From **space itself widening.**
+Panels along the walls stretched and shifted. The structure of the command chamber groaned softly as bulkheads slid apart without machinery driving them.
+The bridge was becoming larger.
+Expanding.
+Not mechanically—but geometrically.
+The crew felt the wrongness of it before they understood it. Corners lengthened. Angles softened. Distances between consoles grew slowly, silently.
+The chamber was making room.
+Outside the flagship, across the scattered formation of the fleet, the same invisible pressure suddenly appeared.
+On the destroyers.
+On the cruisers.
+On the carrier escorts.
+Crew members in corridors froze mid-step.
+Technicians at consoles found their hands lifted away from controls.
+Marines in armored compartments felt their boots lose contact with the floor.
+Hundreds of bodies rose gently into the air.
+At first they fought it.
+They grabbed railings.
+Door frames.
+Control chairs.
+It did not matter.
+The force moving them was patient and absolute.
+They were pulled upward through their ships.
+Through corridors.
+Through ceilings.
+Through decks.
+Metal did not open.
+It simply **ceased to resist them.**
+Bodies passed through bulkheads like shadows sliding through water.
+Alarm systems across the fleet howled uselessly as crew drifted through reactors, weapon bays, sleeping quarters, storage holds.
+Then through the outer hulls.
+And into open space.
+Yet none of them suffocated.
+None of them froze.
+The void simply accepted them.
+Hundreds of living forms floated there, suspended between the ships.
+A sphere of drifting bodies slowly forming in the darkness.
+Some were screaming.
+Some praying.
+Some completely silent in shock.
+Then the sphere began to move.
 Slowly.
 Inevitably.
-The command crew recoils in horror.
-“Captain—!”
-The ancient language returns.
-It tears out of his mandibles in layered, resonant syllables that make the air feel thick and heavy.
-Threxil’s eyes are wide now.
-Not empty.
-Not gone.
-Fully aware.
-And trapped behind them.
-Space in front of the command vessel… bends.
-At first it is subtle.
-A slight distortion in the starfield.
-Then the stars stretch.
-Not outward.
-Inward.
-Like the universe itself is being pulled thin.
-A line of crimson appears.
-Hair-thin.
-Perfectly straight.
-It hangs in space directly ahead of the Kryllathi formation.
-Every sensor across the fleet spikes into overload.
-“Reading—reading spatial shear—”
-“Gravitational values are impossible—”
-“By the Triarchs what is that—”
-The line widens.
-Silently.
-Smoothly.
-Reality parts like flesh under a careful blade.
-And beyond it—
-is not space.
-Not darkness.
-Not stars.
-Depth.
-Endless, suffocating depth the color of wet, arterial red.
-It is not flat.
-It is not empty.
-It goes back—
-and back—
-and back—
-far beyond what distance should be able to contain.
-Something moves inside it.
-Slow.
-Immense.
-Too deep to resolve.
-Across the fleet, hardened Kryllathi warriors go very, very still.
-Because every predatory instinct in their ancient biology is screaming the same thing at once.
-This is a mouth.
-On the flagship bridge, Threxil is shaking violently now, caught between two masters.
-His voice breaks through the ancient chant for just one fractured second.
-“…run…”
-Then the portal widens further.
-And the pulling begins.
-Not thrust.
-Not gravity.
-Something far more deliberate.
-The forward-most cruiser jerks first.
-Its engines flare to maximum output instantly.
-It does not matter.
-The ship slides forward anyway.
-Slow.
-Smooth.
-Helpless.
-“VECTOR DRAG—!”
-“WE ARE AT FULL THRUST—”
-“WE ARE STILL MOVING—”
-Panic finally breaks containment across the Kryllathi formation.
-Ships burn engines hard enough to melt their own drives.
-Formation shatters.
-It does not help.
-Because the fleet is not being pushed.
-They are being reeled in.
-One by one, massive warships begin to slide toward the vast red rupture like prey caught on invisible lines.
-On the bridge of the command vessel, tears are now visibly leaking from the corners of Threxil’s eyes.
-The last thing that is fully his.
-His mandibles tremble.
-His voice is almost gone.
-“…forgive…”
-The ancient language surges back and drowns him completely.
-Outside, the red depth yawns wider.
-Something enormous shifts far, far within it.
-And the Kryllathi fleet continues, slowly and helplessly, to slide toward the waiting dark red abyss.
+Toward the flagship.
+On the command bridge the captain’s voice deepened again, the ancient syllables rolling like seismic waves through the expanding chamber.
+The bodies outside obeyed.
+The sphere of crew from across the fleet drifted closer.
+Closer.
+Passing through the command vessel’s hull as easily as they had passed through their own.
+Hundreds of bodies entering the ship at once.
+The bridge widened further.
+Bulkheads sliding apart.
+Ceiling lifting.
+Deck lowering.
+Until the command chamber became a vast hollow space at the center of the vessel.
+And into that space the sphere arrived.
+Hundreds of living beings suspended in a slow rotation around the captain.
+Their bodies turning gently like fragments caught in orbit.
+The remaining bridge crew—those still conscious—watched in paralyzed horror.
+Some recognized friends.
+Squadmates.
+Officers from other ships.
+All helpless.
+All trapped in the same invisible gravity.
+The captain floated at the center of it.
+Still speaking.
+Still offering something to whatever listened beyond the red depths he alone could see.
+The first mate was slowly pulled toward him.
+Not violently.
+Almost respectfully.
+He tried to speak.
+Tried to appeal to whatever part of the captain might still remain.
+For a moment the captain’s eyes flickered.
+Recognition.
+Memory.
+A fragment of the commander he once had been.
+But then the voice returned.
+The language flowed again.
+And the first mate’s body stiffened as the invisible force reshaped his position in the orbiting mass of crew.
+The sphere began to spin.
+Slowly at first.
+Bodies turning in wide, silent circles around the captain.
+The motion built gradually—like the winding of some enormous mechanism.
+No one understood the purpose.
+Not the crew.
+Not the terrified officers still pinned to the bridge walls.
+But the captain clearly did.
+His movements became more deliberate now.
+Ritualistic.
+Pieces of armor plating and fragments of his own torn chitin floated around him like offerings in zero gravity.
+The ancient words grew louder.
+More urgent.
+More triumphant.
+And somewhere beyond the ship—
+Beyond the stars—
+Something enormous shifted its attention closer.
+The captain lifted his head.
+His voice rising into a final, reverent cadence.
+As if announcing to the unseen listener:
+**The offering had begun.**
+And the fleet, helpless and silent around them, continued drifting deeper into the red darkness waiting beyond the veil.
+
+
+
+
+
+
+
+
