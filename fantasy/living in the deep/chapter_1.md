@@ -379,11 +379,3 @@ The torch burned low. The luminescent moss glowed softly against the far wall. T
 
 John Doe sat in his workshop, seventeen years old, three years lost, and watched the weapon he had built grow dim in the failing light.
 
-
-
-
-
-
-
-
-
