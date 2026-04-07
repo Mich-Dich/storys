@@ -230,7 +230,7 @@ John paused at the threshold, his hand on the door, the gray light of the street
 
 
 
-John stepped out into the morning, and the door closed behind him with a solid thunk that cut off the tannery's smells and left him standing in the gray light of Tanner's Row with the weight of gold against his hip and the shape of his next destination already forming in his mind. He did not look back. There was no need. Marek would take the scales, would sell them to some wealthy merchant or high-ranking delver who wanted armor that could stop a monster's claws, and would never mention where they came from. That was the arrangement they had built over two years of transactions, the unspoken contract between a fence who asked no questions and a supplier who gave him no reason to. 
+John stepped out into the morning, and the door closed behind him with a solid thunk that cut off the tannery's smells and left him standing in the gray light of Tanner's Row with the weight of gold against his hip and the shape of his next destination already forming in his mind. He did not look back. There was no need. Marek would take the scales, would sell them to some wealthy merchant or high-ranking delver who wanted armor that could stop a monster's claws, and would never mention where they came from. That was the arrangement they had built over two years of transactions, the unspoken contract between a fence who asked no questions and a supplier who gave him no reason to.
 
 The street was quiet at this hour, the morning's business still concentrated in the main market rather than the narrow alleys of the Merchant's Quarter. John walked with his head down, his hands in the pockets of his coat, his footsteps steady on the worn cobblestones. The gold coins shifted in his pack with each step, a solid weight that reminded him of what he had just done and what he was about to do. One hundred ten gold was more money than most people in Greymouth saw in ten years. It was enough to buy a house, enough to outfit a party of delvers for a month-long expedition, enough to live on for a lifetime if a person was careful and wanted nothing more than to survive. He was not most people. He did not want a house. He did not want to live on the surface, watching the seasons change and the years pass and the world move on without him. He wanted to go back to the Deep, back to his workshop, back to the work that had consumed him for three years and showed no sign of releasing its hold. And to do that, he needed help. He needed a pair of hands that were not his own, a set of eyes that could watch the perimeter while he grew crystals, a body that could carry supplies and prepare food and perform the thousand small tasks that ate the hours he needed for his research. The gold in his pack was the means to that end, nothing more.
 
@@ -449,13 +449,6 @@ She almost asked, at the clothier's, when he had not looked at the clothes she w
 
 
 
-
-
-
-
-
-
-
 After John bought everything he needed and wanted he headed to the spot that deliveries where send to, Lilith followed in a steady pace.
 
 The gathering point was in the residential district where the carpenter's delivery cart had deposited its load an hour before. John had arranged it this way during previous trips, had learned that the vendors who offered delivery as a courtesy preferred a single drop-off location rather than chasing a customer through the market, and had found a spot near the old fountain where the street widened just enough for a cart to turn around without blocking the flow of foot traffic. The pile was substantial—the folded bed frame leaned against the fountain's stone rim, the mattress wrapped in oiled canvas beside it, the sacks of salt and preserved meat stacked in a pyramid that had begun to settle under its own weight. The blankets and towels and washbasin occupied a separate pile, and the led ingots, dense and dark, sat at the bottom of a canvas sack that had been tied off with a length of rope.
@@ -521,6 +514,399 @@ The tunnel narrowed after the first hundred meters, the walls closing in, the li
 She wanted to ask. The words were there, in her throat, in her chest, in the part of her that had not been silenced by the collar and the command and the eight months of waiting. She wanted to ask where they were going, why they were here, what he had bought her for, what he wanted from her, whether he was real or a ghost or something else that the dungeon had made and the surface could not hold. But the collar pulsed against her throat, and the command pressed against her lips, and she walked in silence, her arms full, her back aching, her tail curled tight, and let the darkness close around her like a door that had been waiting to shut.
 
 
+
+
+
+
+
+
+
+
+
+
+Lilith walked into it with her arms full of bed frame rails and her back heavy with the pack and her tail curled so tight around the washbasin that she could feel the metal pressing into the base of her spine through the fabric of her coat. The tunnel swallowed the light from the guild checkpoint within a few dozen meters, and the Aether crystals that lined the walls of the shallow entrance were spaced so far apart that the spaces between them were pools of shadow that seemed to deepen as they walked. John did not slow. He did not reach for a light. He moved through the darkness with the confidence of someone who had walked this path a thousand times before, and Lilith, her demon heritage granting her eyes that could see in dimmer light than any human, followed because following was the only thing the collar would let her do.
+
+The air changed within the first few hundred meters. It was subtle at first—a heaviness, a thickness, like the moment before a thunderstorm when the atmosphere pressed down on everything and breathing became an act of will rather than reflex. But the storm never came, and the pressure did not lift. It grew instead, settling into her lungs, her skin, the spaces behind her eyes, and she recognized it for what it was: magicules, the ambient particles that powered every spell and every crystal and every living thing that dwelt in the Deep. She had felt them before, during the certification tests that had earned her B-rank, when the guild mages had sealed her in a chamber and pumped the air full of concentrated magicules while monitors tracked the residue accumulating in her channels. She had passed the test, had been certified as resistant enough to survive the deeper delves, but she had never been in a place where the magicules were this thick, this constant, this *alive*.
+
+Her skin began to glow. It was a faint luminescence, barely visible in the darkness, a pale blue that matched the color of her skin and seemed to emanate from somewhere beneath the surface. She had seen this happen before, during the certification tests, when the magicule concentration had passed a certain threshold and her demon heritage had responded by shedding the excess energy as light. It was harmless, the guild mages had told her, a quirk of her physiology that some demons displayed and others did not. But seeing it now, in the darkness of the dungeon, watching the faint glow spread across her hands and forearms like a second skin, she felt a chill that had nothing to do with the temperature.
+
+John glanced back at her, once, his eyes moving across her glowing skin with the same flat assessment he had given everything else. He did not comment. He did not slow. He turned back to the path ahead and kept walking, and Lilith followed, her glow casting just enough light to see the stones at her feet and the shape of his back and the mattress harness that rose above his shoulders like the shell of some strange creature.
+
+The tunnel sloped downward, then leveled, then sloped again, and the rhythm of the descent became something she could feel in her knees and her hips and the ache that had settled into her lower back. She did not know how long they walked. The dungeon had no sun, no stars, no markers of time except the pulse of the magicules and the beat of her own heart. The packs grew heavier, or perhaps she grew weaker, and the bed frame rails in her arms seemed to press against her chest with each step, and the washbasin that her tail had curled around began to slip despite her grip, and she wanted to stop, wanted to set everything down, wanted to ask the questions that were burning in her throat like the residue that was already beginning to accumulate in her channels.
+
+But she could not stop. John had not stopped, and the collar would not let her fall behind, would send a warning pulse through her nerves if she slowed too much, a reminder that her body was not her own and her pace was not hers to set. She matched his stride, step for step, and her arms ached and her back burned and her tail tightened around the washbasin until the metal creaked, and she did not speak.
+
+They passed the first branching tunnel after perhaps an hour. John turned without hesitation, taking the leftmost of three passages, and Lilith followed him into a space that was narrower than the main artery, its walls rough and damp, its ceiling low enough that she had to duck to avoid scraping her horns against the stone. The magicule concentration rose as they moved deeper, the air growing thicker, the glow on her skin brightening until she could see the veins in her own hands, the fine lines of her palms, the calluses that the merchant's housework had left on her fingers.
+
+She was not tired, not yet. The B-rank certification was real, and her body was processing the magicules as fast as they accumulated, the residue building slowly enough that she could feel it but not so quickly that it impaired her. But she was aware of it, the way a person was aware of a low-grade fever, the sense that something was happening inside her that she could not control, that her body was fighting a battle she had not chosen and might not win.
+
+John stopped at a place where the tunnel widened into a small chamber, its floor relatively flat, its walls marked with symbols she did not recognize. He shrugged off the mattress harness, let it fall to the stone with a soft thump, and set his pack down beside it. Then he turned to her, his eyes finding hers in the darkness, and spoke for the first time since they had entered the dungeon.
+
+"Rest. Ten minutes. Drink water, but not too much. We have a long way to go."
+
+He did not wait for a response. He turned away, pulled a small skin of water from his pack, and drank, his throat moving as he swallowed, his eyes scanning the tunnel behind them with the automatic vigilance of someone who had learned never to assume they were safe.
+
+Lilith set down her load with a care that was almost reverent, her arms trembling as the weight left them, her shoulders screaming as the blood rushed back into muscles that had been compressed for too long. She sat on the stone floor, her back against the wall, her tail unwinding from the washbasin and curling around her legs in the familiar gesture of comfort that she had developed during the long months in the holding cells. The water skin was in her pack, somewhere beneath the blankets and the led ingots, and she fumbled for it with fingers that did not want to close, that had forgotten how to grip anything smaller than a bed frame rail.
+
+She drank, and the water was cold and clean and tasted of the surface, and she wanted to cry. She did not cry. She had not cried in eight months, not since the merchant's estate had been settled and she had been returned to Velsa and Sons, not since she had realized that the life she had built in that house—the small dignities, the routines, the sense that she was something more than a piece of furniture—had been an illusion that could be taken away as easily as it had been given. She had learned not to cry, because crying did nothing, and because the other slaves in the holding cells had looked at her with pity when she cried, and she had hated their pity almost as much as she had hated her own weakness.
+
+John was watching the tunnel, not her. His back was to her, his body still, his breathing steady, and she could see the faint pulse of his unconscious Wave, the way the magicules seemed to slide off his skin like water off oiled cloth. She had seen purge weaves before, during her time in the merchant's house, when the delvers who came to visit would clear the residue from their channels after a long delve. Those weaves had been slow, deliberate, the work of minutes or hours, and the delvers who performed them had always looked exhausted afterward, drained by the effort of pushing the residue out of their bodies.
+
+John's weave was nothing like that. It was constant, automatic, as natural as breathing. The pulse radiated from his chest in steady waves, invisible to human eyes but visible to hers in the dim light, and the magicules that settled on his skin were swept away before they could accumulate, pushed back into the ambient air in a continuous cycle that required no conscious attention, no effort, no visible cost. She had never seen anything like it. She had never heard of anything like it. The delvers who could afford purge weaves used them after their delves, not during, because maintaining a weave while walking through the dungeon was like trying to hold your breath while running—possible, perhaps, for a few moments, but not for hours, not for days, not as a constant state of being.
+
+She wanted to ask. The questions were there, pressing against her lips, demanding to be spoken. *How do you do that? How long have you been down here? Where are you taking me? Why did you buy me? What do you want from me?* She opened her mouth, and the collar pulsed, a cold warning that tightened around her throat like a hand, and she closed her mouth and looked at the stone floor and did not ask.
+
+Ten minutes passed. John stood, shrugged into the mattress harness, picked up his pack, and walked into the darkness without looking back. Lilith rose, her body protesting, her arms already dreading the weight they were about to carry, and she picked up the bed frame rails and the pack and the washbasin and followed.
+
+The descent continued.
+
+The tunnels twisted and turned, branching and rejoining, climbing and descending, and Lilith lost all sense of direction within the first hour. The darkness was absolute except for her own glow and the occasional glimmer of luminescent moss on the walls, and she walked in a bubble of pale blue light that showed her the stones at her feet and the shape of John's back and nothing else. She could hear water dripping somewhere, and the scuttle of small creatures in the shadows, and the slow, steady rhythm of her own breathing.
+
+They passed through a stretch of tunnel where the walls were covered in crystals, small clusters of Aether that glowed with their own internal light, and the combined illumination was bright enough to cast shadows. John walked through the crystal field without slowing, and Lilith followed, her eyes drawn to the patterns in the crystals, the way the light refracted through their surfaces, the way the magicules seemed to gather around them like moths around a flame. She had seen crystals like these before, in the merchant's house, where they were used to light the rooms and heat the water and preserve the food. But those had been cut and polished and shaped by human hands, their natural patterns smoothed away until they were nothing more than tools. These were wild, raw, growing from the stone like flowers from soil, and they were beautiful in a way that made her chest ache.
+
+She wanted to ask about them. *What are they? How do they grow? Why are they here?* But the collar pulsed, and she walked in silence, and the crystals faded behind her, and the darkness closed in again.
+
+The first monster appeared when they were perhaps two kilometers deep.
+
+Lilith did not see it at first—her eyes were on John's back, her mind focused on the ache in her arms, the weight of the pack, the way her tail had begun to cramp from holding the washbasin in the same position for too long. But John stopped, and she almost collided with him, and then she saw his hand rise, his fingers moving in a pattern she did not recognize, and a blade of superheated plasma erupted from his fingertip and lanced into the darkness ahead.
+
+There was a squeal, high and sharp, and the sound of something heavy hitting the stone. John walked forward, the plasma torch still burning, and Lilith followed, her heart pounding, her eyes searching the shadows for whatever he had killed. It was a Chitterer, she saw when they reached it—a creature the size of a large dog, its body covered in chitinous plates, its legs splayed and twitching in the final spasms of death. The plasma torch had punched a hole through its carapace, through the flesh beneath, through the stone floor beneath that, and the smell of burning chitin and cooked meat filled the tunnel.
+
+John knelt, cut something from the creature with his knife, and tucked it into a pouch at his belt. He did not explain what he had taken or why. He did not look at Lilith. He stood, stepped over the corpse, and continued walking, and she followed, her eyes fixed on the hole in the stone floor, her mind struggling to process what she had just seen.
+
+He had killed it with a weave. Not a spell, not a prepared incantation, but a weave—a combination of patterns that he had shaped on the fly, his fingers moving in the darkness, his magicules flowing into the shape he wanted. The plasma blade had been hot enough to melt stone, had punched through the Chitterer's armor as if it were paper, and he had done it without visible effort, without breaking stride, without any sign that killing a monster in the depths of a dungeon was anything more than an inconvenience.
+
+She wanted to ask. *What was that? How did you do that? How long have you been doing this?* But the collar pulsed, and she walked in silence, and the corpse of the Chitterer faded behind her, and the darkness closed in again.
+
+They took another break at what John judged to be the halfway point. He did not say how deep they were, did not offer any information about their progress or their destination, but Lilith could feel the pressure of the magicules now, could feel the residue building in her channels despite her B-rank resistance. It was not yet painful, not yet dangerous, but it was there, a heaviness in her limbs, a fog in her thoughts, a sense that the world was pressing in on her from all sides.
+
+She sat on the stone floor, her back against the wall, and drank water that tasted of the dungeon now, of minerals and something else, something she could not name. John stood at the entrance to the small chamber, his body between her and the darkness, his eyes scanning the tunnel with the same automatic vigilance he had shown at the first rest stop. He did not sit. He did not drink. He did not show any sign of fatigue, any indication that the magicules were affecting him at all.
+
+She watched the unconscious Wave pulse across his skin, pushing the residue away before it could settle, and she understood, suddenly, that he was not like the other delvers she had seen. He was not like anyone she had ever met. The delvers who came to the merchant's house had been strong, skilled, confident in their ability to survive the Deep. But they had also been careful, cautious, respectful of the dangers that waited in the darkness. They had visited the dungeon, fought in it, taken what they could from it, and returned to the surface before the residue could kill them.
+
+John lived here. She did not know how she knew, but she knew. The way he moved through the tunnels, the way he read the darkness, the way he had killed the Chitterer without hesitation, without fear, without any sign that he was anything other than completely at home in this place. He was not a delver. He was something else, something she did not have words for, and she had been bought by him, bound to him, and he was taking her deeper into the dungeon than any delver she had ever heard of had gone.
+
+She wanted to ask. *How deep are we going? How do you survive down here? What are you?* But the collar pulsed, and she walked in silence, and the darkness closed in around her like a blanket that was too heavy and too cold and too full of things she could not see.
+
+The tunnels changed as they descended. The smooth, worn stone of the shallow depths gave way to rougher passages, the walls marked by the passage of creatures larger than any she had seen in the market or the holding cells. The air grew warmer, the magicule concentration so thick now that she could feel it on her tongue, could taste it in the back of her throat, could feel it pressing against her skin like a second layer of clothing that was too tight and too hot and would not come off.
+
+John did not slow. He did not waver. He walked with the same steady pace, the same confident stride, and Lilith followed because following was the only thing she could do, because the collar would not let her stop, because the man ahead of her with the mattress on his back and the pack at his side had bought her and bound her and was taking her somewhere, and she would find out where when they got there, or she would not, and either way, there was nothing she could do about it.
+
+She began to notice the marks on the walls after the fourth hour. At first, she thought they were claw marks—scratches in the stone, random and meaningless, the kind of damage that monsters left behind when they passed through a tunnel. But then she saw them again, at the next intersection, and the next, and the next, and she realized that they were not random at all. They were symbols, simple shapes carved into the stone at eye level, some of them so old that the edges had worn smooth, others so fresh that the stone was still pale where it had been cut.
+
+John glanced at each one as he passed, his eyes flicking to the marks and then back to the path ahead, and Lilith understood that he had made them, that he had carved these symbols into the walls to guide himself through the maze of tunnels that would have swallowed anyone else. She saw a dot, and an X, and a line pointing in the direction they were walking, and she recognized them for what they were: a map, not drawn on paper but carved into the stone itself, a trail of breadcrumbs that led from the surface to somewhere deep, somewhere that he had marked as safe, or important, or his.
+
+She looked at the marks with new eyes, and she looked at John with new eyes, and she understood that he had been here often, that he had walked these tunnels a hundred times, a thousand times, that he had made this place his own in a way that no delver she had ever heard of had done. He had not come to the dungeon to hunt or to fight or to bring back treasure. He had come to live here, to build something, to make a home in the darkness, and she was following him into that home with her arms full of bed frame rails and her back heavy with blankets and salt and led ingots and all the things that people carried when they were moving into a new place, a permanent place, a place where they intended to stay.
+
+The branching tunnel appeared without warning, a dark opening on the left side of the passage that seemed to swallow the light from her glowing skin. John stopped in front of it, and Lilith stopped behind him, her arms trembling, her back screaming, her tail so tight around the washbasin that she could feel the metal beginning to bend. He looked at the marks on the wall beside the opening—a dot, a line pointing inward, a symbol she did not recognize—and nodded to himself, a small, almost invisible movement that she would have missed if she had not been watching him so closely.
+
+
+
+
+
+
+
+
+
+
+
+John turned into the branching tunnel without waiting for a response, and Lilith followed, her arms full of bed frame rails, her back heavy with the pack, her tail still curled around the washbasin that had begun to leave grooves in the metal from the pressure of her grip. The tunnel was narrower than the main passage, its walls rough and damp, and the marks on the stone appeared more frequently here—every few meters, a dot or an X or a line pointing the direction they were walking, as if John had wanted to leave no doubt about which path to take. The air grew warmer as they descended, the magicule concentration pressing against her skin like a living thing, and the glow on her hands and forearms had brightened to the point where she could see the individual veins beneath her skin, the blood moving through them in response to the dungeon's pressure.
+
+She had stopped counting the hours. Her body had become a machine of aches and pains, her shoulders screaming with each step, her fingers numb around the bed frame rails, her tail cramping in ways she had not known a tail could cramp. The residue in her channels had built to the point where she could feel it as a constant low-grade fever, a fog in her thoughts that made it difficult to focus on anything except the next step, the next breath, the next moment of survival. But she kept walking, because the collar would not let her stop, and because the man ahead of her showed no signs of fatigue, no indication that the descent was anything other than a morning's stroll through familiar territory.
+
+The tunnel widened, then narrowed, then widened again, and Lilith realized that the dungeon was not a simple system of passages but something more complex, more organic. The walls shifted from smooth basalt to rough conglomerate to something that looked almost like petrified wood, and the ceiling rose and fell without pattern, as if the stone had been poured into molds that had been designed by a mind that did not think in straight lines. She passed openings that led into chambers too large to exist underground—vast spaces where the far walls were lost in darkness, where the echoes of their footsteps returned seconds later, distorted and strange. John walked through these spaces without hesitation, his path cutting straight across the open floor, and Lilith followed, her eyes drawn to the ceiling where something that might have been stalactites or might have been something else entirely hung in the shadows.
+
+The tunnel they entered after one such chamber was straight, moderately wide, its floor worn smooth by the passage of countless creatures over countless years. The walls were marked with the same symbols John had carved elsewhere, but here they were older, the edges softened, as if they had been made long ago and refreshed only occasionally. John's pace did not change, but something in his posture shifted—a subtle tension in his shoulders, a slight turn of his head that brought his eyes scanning the walls, the ceiling, the darkness ahead. Lilith noticed because she had been watching him for hours, because she had nothing else to look at except the back of his coat and the mattress harness and the way his unconscious Wave pulsed faster when he was alert.
+
+She did not see the creature until it moved.
+
+It had been crouched in a recess in the wall, its crystal plates absorbing the light from her glow so perfectly that it had been invisible even to her demon-enhanced eyes. But when it moved, it moved like water breaking over a dam—sudden, unstoppable, a surge of power that covered the distance between them in the time it took her to draw a breath. Twenty meters, maybe less, and the creature crossed it in a blur of smoky quartz and amber eyes, its claws extended, its tail lashing, its body low to the ground in the final instant of its sprint.
+
+Lilith did not scream. There was no time. The sound of her own heartbeat filled her ears, and she saw the creature with a clarity that came from knowing she was about to die—a lithe, muscular feline the size of a small horse, its body covered in overlapping plates of smoky quartz that caught the dim light and threw it back in fractured rainbows. Its eyes were twin points of amber, lidless, pupil-less, and they were fixed on her, not on John, as if the creature had already decided which of them was the easier kill.
+
+
+
+
+
+
+
+
+
+
+John did not draw his short sword. He did not raise his hand to weave a spell. He reached into his coat, his motion smooth and unhurried, and pulled out something that Lilith had not seen before—a thing of wood and leather and metal, small enough to fit in one hand, its shape unfamiliar and yet somehow deliberate. It was not a weapon she recognized, not a crossbow or a wand or any of the tools that delvers carried into the Deep. It was a rounded block, its surfaces fitted together with a precision that spoke of hours of careful work, and it sat in his palm with the weight of something that had been designed for a single purpose.
+
+He aimed, the movement as natural as breathing, and Lilith had time to think that the creature was going to kill her, that the amber eyes were fixed on her face, that the crystal claws were already extending, that there was nothing she could do except watch her death arrive on silent, padded feet.
+
+Then the creature exploded.
+
+Not literally—not into pieces that flew in all directions—but something inside it burst. A wound opened at the base of its skull, a dark rupture that sprayed blood in a fine mist that caught the dim light and hung in the air like a cloud of black rain. The spray was directional, violent, driven by some force that pushed it away from John, away from the weapon in his hand, as if the creature had been struck by something invisible that had passed through it and continued on. The Shardprowler's body, still in mid-leap, seemed to crumple, its legs folding, its tail going limp, and it hit the ground with a wet, heavy thud that shook the stone beneath her feet.
+
+Behind the creature, the tunnel wall cracked. A small crater appeared in the stone, finger-width and deep, its edges white and fractured, and the sound of that impact echoed down the passage like a stone dropped into a deep well. Dust puffed from the crater, settled, and the silence that followed was so complete that Lilith could hear the blood dripping from the creature's wound, could hear the slow, steady pulse of her own heart, could hear the faint click of the weapon in John's hand as he lowered it.
+
+She stared at the corpse. The amber eyes were dark now, the crystal plates already losing their luster, but her mind was not on the creature. Her mind was on the space between the moment John had raised the weapon and the moment the Shardprowler had died. There had been a sound—a crack, sharp and flat, like nothing she had ever heard—and then the creature had simply stopped being alive. No spell-light, no weave. Just a sound and a death, and the blood spraying away from John as if the creature had been struck by a fist made of wind and fury.
+
+She looked at the weapon. It was still in his hand, a rounded block of wood and leather and metal, its surface smooth and dark. There was no glow, no residual magic, no sign that it had done anything at all. It was just an object, silent and still, and yet she knew—with a certainty that settled into her bones like the dungeon's cold—that it had killed the Shardprowler. That the creature, which could have torn through a party of delvers, which could have gutted her before she could scream, had been erased by whatever was hidden inside that block of wood and leather and metal.
+
+Her legs were shaking. She had not noticed until now, but her knees were trembling, her thighs aching, her entire body caught in the aftershock of a terror that had not had time to fully form before it was rendered unnecessary. She had been dead. For a heartbeat, for less than a heartbeat, she had been dead, and then she was not, and she did not understand how or why or what had happened, and the confusion was almost as overwhelming as the fear.
+
+John walked forward, his footsteps steady on the stone. He stepped over the creature's corpse without looking at it, knelt beside the crater in the wall, and examined the damage with the same detached attention he had given the bed frame at the carpenter's stall. Then he stood, reached into his coat, and pulled out a small metal cylinder that he slid into the weapon's front. There was a click, soft and final, and he tucked the weapon back into his coat.
+
+Then he continued walking, as if he had not just killed an A-rank monster that could have slaughtered a dozen delvers, as if the blood still dripping from the corpse were no more remarkable than water seeping from a damp wall.
+
+Lilith followed. Her legs carried her because the collar demanded it, because the command he had given her at the fountain still held, because she could not do anything else. But her mind was a storm of questions, a hurricane of confusion and fear and something else, something that might have been wonder or might have been the first stirrings of a terror she had never known.
+
+The weapon was not magic. It could not be magic. There had been no incantation, no weave, no visible pattern, no glow of magicules shaping themselves into a spell. It had been a sound and a death, and the sound had come from the weapon, and the death had come from the weapon, and the space between them had been too small to contain any spell she had ever seen or heard of.
+
+She wanted to ask. The questions pressed against her throat like hands, demanding to be spoken. *What is that thing? How did it kill the Shardprowler? What are you?* But the collar pulsed, a cold warning that tightened around her neck, and she walked in silence, her eyes fixed on the back of John's coat, her mind replaying the moment of the creature's death over and over again, trying to find something she had missed, some clue that would make sense of what she had witnessed.
+
+There was nothing. Just a rounded block of wood and leather and metal, and a crack like a crossbow but sharper, flatter, and then blood spraying away from John and a crater in the wall and a monster that had been alive and was now dead.
+
+She followed him into the darkness, and the questions burned in her chest like the residue that was still building in her channels, and she did not know which would consume her first.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+She followed him into the darkness, and the questions burned in her chest like the residue that was still building in her channels, and she did not know which would consume her first.
+
+The tunnel curved, then straightened, then curved again, and John walked through it all with the same steady, unhurried pace, his eyes scanning the shadows, his hand resting near the place in his coat where he had hidden the weapon. Lilith watched his back, watched the unconscious Wave pulse across his skin, watched the way his shoulders moved with each step—loose, relaxed, the shoulders of someone who was not afraid, who had never been afraid in this place, who had made this darkness his home and his kingdom and his workshop.
+
+She was still trying to understand what she had seen when the second monster appeared.
+
+It came from a side tunnel, a small opening that Lilith had not even noticed, and it was not a Shardprowler. It was a Chitterer, the same kind of creature John had killed earlier with his plasma weave, but this one was smaller, faster, and it was already too close for the rounded weapon. She saw its chitinous plates catch the dim light, saw its mandibles open wide, saw its legs bunching for the spring that would carry it into her throat.
+
+John did not reach for the weapon. He dropped his pack, let the mattress harness fall from his shoulders, and drew his short sword in a motion that was almost too fast to follow. The blade came out of its sheath and met the Chitterer's lunge in the same heartbeat, a single clean arc that passed through the creature's neck as if the chitin were nothing more than damp paper. The Chitterer's body continued forward, carried by its own momentum, but its head separated from its thorax and tumbled past Lilith's feet, its mandibles still working, its legs still twitching, as if it had not yet understood that it was dead.
+
+John sidestepped the corpse, let it crash against the tunnel wall, and stood for a moment with his sword still extended, his breathing steady, his eyes scanning the side tunnel for any sign of more creatures. There were none. He cleaned the blade on the Chitterer's hide, sheathed it, picked up his pack and the mattress harness, and continued walking.
+
+Lilith followed, stepping over the headless body, her eyes wide, her heart pounding in her chest. She had seen him kill with the weapon, and that had been incomprehensible—a sound and a death, blood spraying from nothing, a creature destroyed by something she could not see. But this was different. This was a blade, and the blade had moved with a precision and economy that spoke of thousands of hours of practice, of a body that had been trained to react faster than thought, of a mind that had learned to read the smallest tell in a creature's posture and respond before the attack could land.
+
+He had not dodged. He had not blocked. He had stepped into the Chitterer's lunge and killed it before its mandibles could close, and the whole thing had taken less time than it took her to draw a breath. He was not just a man with a strange weapon. He was a fighter, deadly and efficient, and he had been living in this dungeon long enough that killing monsters had become as automatic as the Wave that pulsed across his skin.
+
+She wanted to ask. *How long have you been down here? How many creatures have you killed? How are you still alive?* But the collar pulsed, and she walked in silence, and the questions multiplied in her chest like crystals growing in a dark vein.
+
+The tunnel narrowed again, the walls pressing close, the ceiling so low that John had to duck and she had to bend almost double to avoid scraping her horns. The air was thick and warm, the magicule concentration so high that she could feel it coating her tongue, her lungs, the inside of her eyelids. Her glow had brightened to the point where she could see the individual veins in her hands, the blood moving through them in slow, sluggish pulses, and she knew that the residue was building faster than her body could clear it, that she would need to rest soon, that if they did not reach their destination within the next hour, she would begin to sicken.
+
+The Deep Lurker dropped from above without warning.
+
+It had been clinging to the ceiling, its pale, segmented body flattened against the stone, its many legs spread wide to distribute its weight. Lilith did not see it until it was already falling, its jaws open wide enough to take off her head, its venomous stingers extended and dripping with something that smoked where it touched the air. She had time to think that this was it, that the Shardprowler had been luck and the Chitterer had been speed but this time there was no luck, no speed, no chance, and then John's hand moved.
+
+The rounded block of wood and leather and metal was in his grip before she could blink, aimed at the falling creature, and the crack came again—that sharp, flat sound that was like nothing else in the world. The Deep Lurker's head burst. Not exploded, not shattered, but burst, as if something invisible had passed through it from front to back, carrying brain and bone and venom out the other side in a spray of gray and black that painted the ceiling and the walls and the stone floor beneath. The creature's body, still falling, twitched once and then went limp, and it landed at Lilith's feet with a wet, heavy sound that she felt through the soles of her boots.
+
+She stared at the corpse. The head was gone, reduced to fragments that steamed in the cool air, and the stingers had gone limp, their venom dripping harmlessly onto the stone. Behind the creature, high on the ceiling, a small crater had appeared in the rock, its edges white and fractured, and dust was drifting down from it like snow.
+
+She had not seen the thing that had killed it. There had been nothing visible between the weapon and the creature—no bolt, no arrow, no stone, no beam of light or fire or force. Just the crack, and then the head was gone, and the creature was dead, and she had no idea how.
+
+Her legs gave out. She did not fall—the pack on her back and the bed frame rails in her arms kept her upright, more or less—but her knees buckled, and she had to brace herself against the tunnel wall to keep from collapsing. The rough stone scraped her palms through the sleeves of her coat, and she breathed in shallow gasps, her chest heaving, her eyes still fixed on the headless corpse at her feet.
+
+John looked at her. His expression did not change—the same flat, assessing gaze he had turned on her in the auction house, on the Shardprowler's corpse, on the crater in the tunnel wall. He did not ask if she was all right. He did not offer comfort. He waited, his hand still resting on the rounded weapon, his eyes scanning the darkness above them for any more Lurkers that might be clinging to the ceiling.
+
+None came. He tucked the weapon back into his coat, reached down with his free hand, and grabbed the Deep Lurker's largest leg. With a single, sharp tug, he pulled it free from the socket and tossed it into a pouch at his belt—a trophy, perhaps, or an ingredient, or something she could not begin to understand.
+
+Then he picked up his pack, settled the mattress harness across his shoulders, and continued walking.
+
+Lilith pushed herself off the wall. Her legs were still shaking, but they held, and she followed, stepping over the headless corpse, her arms full of bed frame rails, her back heavy with the pack, her tail so tight around the washbasin that she could feel the metal beginning to bend. She did not look back at the Deep Lurker. She did not look at the crater in the ceiling. She looked at John's back, at the mattress harness, at the way his coat hung on his shoulders, and she understood, with a clarity that was almost painful, that she was in the presence of something she had never encountered before.
+
+He had built the weapon. It contained a crystal at its heart—she was certain of it now, even though she could not see the crystal, even though she did not understand how it worked. He had carved the wooden block, fitted the leather and metal, designed every component with the same precision and care that he had brought to the bed frame and the mattress and the led ingots in her pack. He had built something new, something that did not exist anywhere else in this world, something that could kill an A-rank monster in the time it took to blink, with no warning, no visible magic, no chance for the victim to defend itself.
+
+And he had brought her to see it.
+
+She did not know why. She did not know what he wanted from her, what role she was meant to play in whatever he was building, what would happen to her when they reached their destination. But she knew that she was being shown something that no one else had seen, that she was being brought into a world that existed only in the darkness at the bottom of the dungeon, that the life she had lived before—in the merchant's house, in the holding cells, in the auction house—was over, and something else was about to begin.
+
+The tunnel ended at a hide curtain, rough leather stitched together with sinew and hung across an opening that was just wide enough for a person to pass through. The leather was worn, dark with age and the residue of countless touches, and the edges of the curtain had been weighted with small stones to keep it flush against the stone. Light spilled through the gaps around its edges—torchlight, warm and flickering, mixed with the cooler glow of luminescent moss and the steady radiance of Aether crystals.
+
+John pushed the curtain aside without hesitation, the leather scraping against the stone, and stepped through into the space beyond. The light that flooded through the gap was dim by surface standards, but after hours of darkness, it seemed almost blinding, and Lilith had to blink and squint to see anything at all.
+
+
+
+
+
+
+
+
+
+
+
+
+She stepped through the gap, and the light washed over her—warm and flickering from torches, cool and steady from clusters of glowing stones, soft and diffuse from patches of luminescent moss that covered most of the northern wall. The combined glow was dim by surface standards, barely enough for a human to read by, but for eyes that had spent hours in absolute darkness, it was almost too bright. Lilith blinked, squinted, and felt her pupils contract as the world resolved itself around her.
+
+And then she stopped.
+
+The cavern was enormous. Her first thought was that she had entered a different world, a pocket realm carved out of the dungeon's flesh and shaped into something that had no right to exist this deep underground. Twenty meters wide, she guessed, maybe more, and fifty meters long—she could not see the far end clearly through the flickering torchlight, but she could sense the distance, the way the echoes of the dripping spring took a moment longer to return than they should have. The ceiling varied from three meters near the entrance to ten meters at the far end, where the shadows gathered thick and dark beneath a cluster of stalactites that had been broken off and smoothed by human hands.
+
+Light came from everywhere and nowhere. Torches burned in iron sconces along the walls, their flames fed by some kind of animal fat that smelled faintly of smoke and salt. Clusters of naturally glowing stones had been set into the rock at intervals, their pale blue light mixing with the torches' orange to create a twilight that was almost gentle. And the moss—patches of luminescent moss that covered most of the northern wall, their soft green glow pulsing slowly, as if the cavern itself were breathing.
+
+Two large tables dominated the center of the space. They were rough-hewn, functional, their surfaces scarred by knife marks and stained with the residues of a dozen different substances. Notebooks lay open on the nearest table, their pages filled with cramped, precise handwriting and small schematic drawings. Crystal fragments were scattered across the wood—some clear as glass, others cloudy and fractured, all of them catching the light and throwing it back in tiny rainbows. Tools she did not recognize were arranged in careful rows: carving knives with blades worn thin from use, calipers made from monster bone, a set of small vials filled with powders and liquids that gleamed in the torchlight.
+
+And there, on the nearer table, she saw them. More of the rounded blocks—the weapons—or pieces of them. Metal tubes, some long and some short, their surfaces dark and cool. Crystals in various stages of completion, some no larger than her thumbnail, others as long as her finger, all of them embedded in wooden housings that had been carved and fitted with the same precision she had seen in the weapon John carried. A wooden stock wrapped in leather, not yet attached to anything. A row of small metal cylinders—bullets, she realized, though she did not know the word for them—laid out on a strip of cloth like specimens in a display.
+
+The weapon John carried was not unique. It was a prototype. He had made more, or was making more, and the scattered pieces on the table were the evidence of a mind that was never satisfied, that was always building, always testing, always reaching for something beyond what it had already achieved.
+
+Her eyes moved to the far wall. There was a crater there, finger-deep and palm-wide, carved into solid stone. The rock around it was fractured, the edges sharp and white, and fine dust still clung to the bottom of the wound. She did not need to ask what had made it. The same invisible force that had punched through the Shardprowler's skull, that had burst the Deep Lurker's head, that had left craters in tunnel walls and ceilings throughout their descent—that force had been aimed here, at this wall, in this cavern. He had tested his weapon in this room. He had watched it carve wounds into stone, and he had measured those wounds, and he had written about them in his notebooks, and then he had built a better one.
+
+John set down his pack and the mattress harness, the leather and wood settling against the stone floor with a soft thud. He turned to her, his eyes moving across her face, her trembling arms, the bed frame rails that she was still holding because she had forgotten she was holding them. He gestured to a corner of the cavern where the floor was relatively flat and the wall was free of moss and crystals. Almost nothing was there—just empty stone, waiting.
+
+"You can sleep there," he said. "The food stores are in that chest." He pointed to a wooden chest near the bed of fur and leather that stood against the far wall, its lid closed, its surface carved with simple geometric patterns. "Tomorrow I will show you how I need things organized."
+
+He paused, and something in his expression shifted—not softening, exactly, but becoming less closed. "You can speak freely now."
+
+The words hit her like a release of pressure, like a door swinging open after hours of being sealed. The collar was still there, still warm against her throat, but the command that had pressed against her lips was gone, lifted, and she felt the questions rise in her chest like bubbles in boiling water.
+
+"How will I survive?" The words came out rough, almost desperate, her voice cracking after hours of silence. "My resistance—B-rank is not enough for this depth. I can feel the residue building. A few days, maybe. A week at most."
+
+John looked at her, and for a moment she thought he would not answer, that he would simply turn away and leave her to figure it out on her own. But he did not. He walked toward her, stopped a few feet away, and spoke in the same flat, clinical voice he had used in the auction house.
+
+"You will not die. Not from the residue." He reached up and touched his own chest, just below the collarbone, where the unconscious Wave pulsed faintly beneath his shirt. "I have a method. It clears the residue faster than it can accumulate. I will teach it to you. But first—" He gestured to the bed frame rails still clutched in her arms, to the pack on her back, to the washbasin that her tail had finally released and that now sat on the stone floor near her feet. "Build your bed. Put away the things we brought. Then we will talk."
+
+He turned away before she could respond, walking toward the tables, and Lilith stood in the center of the cavern with her arms full of wood and her back heavy with supplies and her mind spinning with a dozen new questions. *A method. A method that clears residue. A method that lets him live down here, six kilometers deep, without surfacing, without purges, without any of the things that delvers needed to survive.* She wanted to ask now, wanted to demand that he explain, wanted to understand how such a thing was possible.
+
+But he had told her to build her bed. And the collar, though it no longer silenced her, still enforced obedience. She would build her bed. She would put away the things they had brought. Then she would talk.
+
+The work took ten minutes. John did not help her—he sat at the larger table, his back to her, his stylus scratching across the pages of a notebook—but he had left the bed frame disassembled in a way that made assembly straightforward, and the mattress unrolled easily onto the slats, and the blankets and towels and washbasin found their places in the corner she had been assigned. The led ingots she stacked beside the chest, unsure what else to do with them. The salt and preserved meat she carried to the food chest, opening the lid to find it half-empty, its contents organized with the same precision she had seen in everything else John did.
+
+When she was finished, she stood beside her new bed—a real bed, with a frame and a mattress and blankets that smelled of wool and moss—and looked at John's back. He did not turn around. He did not acknowledge that she had finished. She waited, her hands clasped in front of her, her tail curled around her legs, and after a moment he set down his stylus and turned.
+
+"Sit," he said, gesturing to the bed.
+
+She sat. The mattress was softer than she expected, the blankets thick and warm, and she felt some of the tension leave her shoulders despite herself. John walked toward her, stopped behind her, and she heard him settle onto the bed behind her—close enough that she could feel the warmth of his body, not close enough to touch. Then his hands landed on her shoulders, his fingers pressing against the fabric of her coat, and she tensed.
+
+"Relax," he said. "This will feel strange, but it will not hurt."
+
+She did not know what he meant. Then she felt the magicules flow.
+
+They came from his hands, through her coat, through her skin, into the channels that carried magic through her body. She had felt magicules before—during the certification tests, when the guild mages had pumped the chamber full of concentrated residue and monitored her reactions—but she had never felt them move through her like this, directed and purposeful, shaped into a pattern that she could almost see behind her eyes. The weave was complex, two patterns interwoven—a Net, she realized, and a Wave, the Net forming a sieve that caught the accumulated residue and the Wave pulsing through it, loosening the bonds that held the residue in place.
+
+The effect was immediate. The fog in her thoughts began to lift. The heaviness in her limbs began to fade. The pressure behind her eyes, the ache in her joints, the sense that something was building inside her that would eventually burst—all of it began to recede, pushed out of her channels, out of her organs, out of her skin, until she could feel the residue leaving her body in a warm, invisible tide.
+
+She exhaled, and her breath fogged in the air, and she realized that she was breathing out the waste that had been accumulating for hours. The fog dissipated into the cavern's ambient magicules, and she breathed in, and the air felt cleaner than it had since she had entered the dungeon.
+
+John removed his hands. The weave stopped, but the relief remained, a freshness in her body that she had not felt since leaving the surface. She turned to look at him, her eyes wide, her mouth open, and he met her gaze with the same flat expression he had worn all day.
+
+"That is the purge weave," he said. "Net and Wave, combined. The Net catches the residue. The Wave loosens it and pushes it out. You will learn to cast this on yourself, every day while you are awake. At first it will be difficult. You will need to concentrate, to feel your own channels, to hold the patterns in your mind while you push the magicules through your body. But with practice, it will become easier. In a month or two, it will feel as natural as breathing."
+
+He stood, walked around the bed, and sat on the chest of food stores, facing her. His legs were crossed, his hands resting on his knees, and he looked at her with the same analytical attention he had given the Shardprowler's corpse and the crater in the wall.
+
+"Now. You have questions. Ask them."
+
+She had a thousand questions. They crowded her throat, jostling for space, and for a moment she could not choose which to speak first. Then she settled on the one that seemed most urgent, the one that underlay all the others.
+
+"How do you live down here?" she asked. "The purge, it's not enough. Even if I learn it, even if I cast it every day, I don't understand how you survive. The residue builds faster than any spell can clear it. That's what the guild mages say. That's what every delver knows. The deeper you go, the faster it builds, and eventually—"
+
+"Eventually, you die," John finished. He did not sound troubled by the statement. He sounded like a man reciting a fact, like a engineer reading a specification. "Unless you find a way to clear the residue faster than it accumulates. Which I have."
+
+He paused, and she saw something flicker behind his eyes—not pride, not arrogance, but something else, something that might have been the satisfaction of a problem solved.
+
+"The purge weave I just showed you is not the commonly known method. It is the method I created. It is... more efficient." He touched his chest again, where the unconscious Wave pulsed beneath his skin. "I have integrated the purge into my body. It runs constantly, automatically, without conscious effort. The residue only accumulates when using magic with extreme intensity, because it is cleared the moment it forms. I could live down here for years without surfacing. I already have."
+
+Lilith stared at him. Years, she thought. He had been down here for literal years, living in this cavern, hunting, fighting, building weapons and filling notebooks with diagrams and observations. He had not spoken to another person for longer than it took to complete a transaction.
+
+"Why?" she asked. "Why live down here? Why not return to the surface? You could sell your discoveries. You could be rich. You could be famous. The guild would—"
+
+"The guild would take my work and use it to build weapons that would kill thousands," John said, and his voice was flat, final. "The mages would learn my methods and twist them into spells that would burn cities. The merchants would sell my crystals to the highest bidder, and the highest bidder would be someone who wanted power, not knowledge. I have seen what happens when powerful technology is released without the social infrastructure to absorb it. I have read the history of gunpowder, of nuclear fission, of the internal combustion engine. A discovery is never just a discovery. It is a lever, and someone will always want to move the world with it."
+
+He leaned back against the chest, his eyes still on hers.
+
+"I am not ready to give the world that lever. I may never be ready. So I work alone, and I keep my discoveries to myself, and I let the world believe that I am dead."
+
+The silence stretched between them. Lilith wanted to ask about the unknown wordsJohn spoke of, gunpowder, nuclear fission and internal combustion engines. she wanted to ask what kind of place he had come from where such things existed. But she sensed that those questions would not be answered, not yet, and she turned to the other mystery that had been burning in her chest since she had seen the things on his table.
+
+
+
+
+
+
+
+
+
+
+
+Lilith looked at the weapon on the table—the rounded block of wood and leather and metal that had killed a Shardprowler and a Deep Lurker without visible magic, without incantation, without any explanation she could grasp. The questions that had been building in her chest finally found their shape, and she spoke, her voice low but steady.
+
+"That thing. The weapon. How does it work? What did you do to those monsters? There was no spell, no weave, no glow. Just a sound, and then blood, and they were dead." She paused, her hands tightening in her lap. "I have never seen anything like it. No one has. What is it?"
+
+John looked at her for a long moment, his expression unreadable. Then he stood, walked to the table where the scattered fragments and tools lay, and picked up something small and pale. He turned back to her, his fingers holding a crystal—cloudy, fractured, no larger than her thumb, its surface rough and uneven. He crossed the cavern and held it out to her.
+
+"This," he said, "is what makes it work."
+
+Lilith took the crystal, turning it over in her fingers. It was unremarkable—the kind of flawed, low-grade crystal that delvers sold for scrap, useful only for the most basic enchantments or as fuel for streetlamps. She had seen thousands like it in the merchant's house, had swept their fragments from the floor after they had burned out or cracked. There was nothing special about this one, nothing that explained the death of an A-rank monster.
+
+"It's just a crystal," she said, confused. "A poor one. You can find these anywhere."
+
+John shook his head. He reached out and took the crystal back, holding it up to the light of the nearest torch. "Look closer. At the inside."
+
+She looked. The crystal was cloudy, its lattice full of impurities and fractures, but as she focused, she began to see something strange—tiny channels, hair-fine and irregular, running through the interior like the tunnels of a worm that had eaten through stone. They were not natural. Crystals grew in patterns, in lattices, in structures that followed the laws of magic and mineralogy. They did not grow hollow channels that wandered through their cores like paths in a maze.
+
+"What are those?" she whispered.
+
+"Hollows," John said. "Voids in the lattice. They guide the magicules. When I inject power into the crystal, the magicules follow the hollows, and the shape of the hollows determines what happens to them. In this crystal, the hollows are arranged to convert magicule flow into kinetic force. That force pushes the bullet out of the tube faster than any crossbow bolt, faster than any spell."
+
+He set the crystal down on the bed beside her and picked up the weapon, turning it over in his hands. "The crystal is the heart of it. The rest is just wood and metal, a tube to direct the bullet and a housing to hold the crystal in place. Without the crystal, it is nothing. With the crystal—" He gestured toward the crater in the far wall. "You saw."
+
+Lilith stared at the crystal, then at the weapon, then at the crater. Her mind was struggling to keep up, to fit what he was saying into the framework of what she knew about the world.
+
+"But the hollows," she said. "How did they get there? Crystals grow solid. The lattice forms around impurities, around inclusions, but it does not grow empty channels. That's not how crystal formation works. It's—it's impossible."
+
+John met her eyes, and for the first time, she saw something in his expression that was almost like anticipation. He was waiting for her to understand, to ask the right question.
+
+"I put them there," he said. "I grew the crystal around a maintained magicule field. The field carved the hollows as the crystal formed."
+
+The words hung in the air. Lilith felt her heart stutter, then resume its rhythm at a faster pace. She shook her head, almost involuntarily.
+
+"No. That's not—you can't grow crystals. No one can. Scholars have tried for hundreds of years. Alchemists have dedicated their lives to it. The lattice is too complex, the patterns too fine. It is as unrealistic as—as gravity disappearing. Everyone knows this."
+
+"Everyone is wrong," John said. His voice was flat, clinical, as if he were describing a chemical reaction or a mathematical proof. "Crystals can be grown. Not easily, not efficiently, and not with the precision I would like. But they can be grown." He picked up the crystal again, turning it so the torchlight caught the hollows. "This one took me three days of continuous weaving. Seventy-two hours without sleep, without lowering my concentration for more than a few seconds at a time. The hollows are uneven, the fractures are extensive, and only eighteen percent of the magicule energy is converted into kinetic force. The rest is wasted as heat and vibration."
+
+He set the crystal down and gestured to the table, where other crystals lay in various stages of completion—some larger, some smaller, some so fractured that they looked ready to crumble.
+
+"But it works. And the next one should work better, hopfully. And the one after that should work better still. I have made twenty-seven attempts, resulting in Twenty-one crystals. I have documented every variable—the growth medium composition, the temperature, the duration, the pattern geometry. I have filled notebooks with my findings. I am building a unified theory of magic, one experiment at a time, and the crystals are my current focus."
+
+Lilith listened, but her mind was not accepting what she was hearing. It was not that she disbelieved him—the evidence was there, in the weapon, in the crater, in the dead monsters that had littered their path. But the claim was so extraordinary, so far outside the boundaries of what she had been taught, that her thoughts kept circling back to the same impossible conclusion and then shying away from it.
+
+*He grows crystals.* The words echoed in her head, but they did not feel real. They felt like something from a story, a legend about a mage from a forgotten age who had achieved the impossible and then disappeared into history. People did not grow crystals. The laws of magic did not allow it. The lattice was too rigid, the patterns too fixed, the margin for error too small. Everyone knew this. She knew this. She had known it since she was a child, had absorbed it with the same certainty that the sun rose in the east and that fire burned and that the collar around her throat would kill her if she disobeyed.
+
+And yet John was holding a crystal in his hand, a crystal that he claimed to have grown, a crystal with hollows that should not exist, a crystal that had killed monsters that would have slaughtered entire parties of delvers.
+
+"You're lying," she said, and the words came out before she could stop them. The collar pulsed, a warning, and she flinched, but John did not react. He simply looked at her, his expression unchanged.
+
+"I am not lying," he said. "I do not have the time or the inclination to lie. Everything I have told you is true. I grew that crystal. I built that weapon. I have been living in this dungeon for three years, and in that time, I have learned more about magic than most mages learn in a lifetime."
+
+He paused, and something flickered behind his eyes—not anger, not frustration, but something that might have been understanding.
+
+"You do not have to believe me. Belief is irrelevant. The crystal works. The weapon works. You have seen them work. Whether you believe that I grew the crystal or found it in a monster's belly does not change the fact that it is here, in my hand, doing what I designed it to do."
+
+He set the crystal on the bed beside her and stood, looking down at her with the same flat, assessing gaze he had worn all day.
+
+"In time, you will see more. I will grow another crystal while you are here. You will watch the process. You will see the weave, the growth medium, the seed crystal. You will see the hollows form, day by day, hour by hour. And then you will believe. Not because I told you to, but because you saw it with your own eyes."
+
+Lilith looked at the crystal on the bed beside her. She wanted to pick it up again, to examine the hollows, to find some flaw in his story that would let her return to the comfortable certainty that the world worked the way she had always been taught. But she did not. She sat on the new bed, her hands folded in her lap, her tail curled around her legs, and she let the impossibility of what he had said settle into her chest like a stone dropped into deep water.
+
+She did not believe him. Not completely. The part of her that had been shaped by years of certainty, by the teachings of the merchant's house and the whispers of the delvers and the cold, hard facts of the auction house, refused to accept that a seventeen-year-old boy had done what generations of scholars had failed to accomplish. But another part of her—the part that had seen the Shardprowler burst into blood, that had watched the Deep Lurker's head vanish, that had felt the purge weave clear the residue from her channels—that part was beginning to wonder.
+
+She would watch. She would learn. And when she saw the crystal grow with her own eyes, then she would decide whether to believe.
+
+John turned away, walked to his table, and picked up his stylus. He did not look at her as he spoke.
+
+"Rest now. Tomorrow, you will clean the workshop. You will organize the supplies. You will study the documents I leave for you—they will teach you the basics of pattern weaving, so that you can learn the purge weave more quickly. And you will butcher the monsters I kill during my morning hunt."
+
+He paused, his stylus hovering over the page. "You are alive. You are fed. You are warm. For now, that is enough."
+
+He began to write, his stylus scratching across the paper in the same precise, cramped handwriting she had seen on the notebook pages scattered across the table. Lilith watched him for a moment, then lay back on her new bed, her tail curling around her legs, her hands folded across her stomach. The mattress was soft, the blankets warm, and the cavern's light was dim and gentle.
+
+She closed her eyes. She did not sleep. She reached inward, feeling for her channels, for the magicules that flowed through them, for the residue that was already beginning to accumulate again despite the purge. And she began to practice the weave he had shown her—the Net and the Wave, the sieve and the pulse, the pattern that would keep her alive in this place.
+
+But in the back of her mind, the doubt remained, coiled and waiting. *He grows crystals.* The words echoed, impossible and yet somehow undeniable. She would believe it when she saw it. Not before.
 
 
 
