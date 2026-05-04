@@ -45,7 +45,7 @@ Deliberately, strategically insufferable.
 I'd walk in, make outrageous demands, watch her face cycle through shock and horror, and then—just when she was about to flee—I'd drop the act and reveal it was all a test of character. A joke! A bit! If she laughed, she was a keeper. If she threw her drink in my face, well, at least I'd have a story.
 It was foolproof.
 The paper read: **909**.
-I squinted at my mother's handwriting. She had the penmanship of a doctor having a seizure, but the numbers were clear enough. Nine. Zero. Nine. Ninth floor, room nine. Made sense.
+I squinted at my mother's handwriting. She had the penmanship of a doctor having a seizure, but the numbers were clear enough. Ninth floor, room nine. Made sense.
 I rode the elevator alone, practicing my arrogant face in the mirrored walls. Shoulders back. Chin up. The trick was to project the kind of casual entitlement that said *I'm doing you a favour just by existing*. I'd seen it on half the men in this world already. How hard could it be?
 The elevator dinged.
 I found room 909 at the end of a quiet hallway, the door closed, soft light spilling from the gap at the bottom. My heart hammered against my ribs. Annoying. I'd died from overwork. I'd survived (sort of) transmigration. One girl in a private dining room shouldn't make me nervous.
@@ -84,7 +84,7 @@ Lilith’s green eyes went wide—just for an instant, a fleeting flicker of som
 But the shock never morphed into disgust.
 Instead, something else bloomed in her expression. Her pupils dilated. Her lips parted just barely, and the teacup resumed its journey as if nothing had happened, her mask sliding back into place with terrifying grace.
 I misread it entirely. I thought she was appalled by the depths of my uselessness. So, like the idiot I am, I doubled down.
-"Actually, let me clarify," I said, warming to my own performance, mistaking her silence for barely-contained fury. "When I say ‘provide whatever I want,’ I mean *whatever*. I’m not going to pick out my own clothes. Someone else can decide what I wear. Breakfast in bed? Non-negotiable. I want a personal masseuse on call—male or female, I don't care, as long as they don’t talk. I’m going to need a gaming room with the latest consoles, and if a new one comes out, I expect it delivered before I even know it exists. I’ll take naps at noon, dinner whenever I feel like it, and if I decide to spend an afternoon watching paint dry, you’ll provide the wall and someone to repaint it when I’m bored." I leaned back, spreading my hands like a king addressing court. "I am, in short, a kept man. The most gloriously, unrepentantly lazy kept man this world has ever seen. If you’re looking for a partner, I’m not it. I’m a pet. A particularly spoiled, demanding pet who will contribute absolutely nothing except my sparkling personality. Still interested?"
+"Actually, let me clarify," I said, warming to my own performance, mistaking her silence for barely-contained fury. "When I say ‘provide whatever I want,’ I mean *whatever*. Breakfast in bed? Non-negotiable. I want a personal masseuse on call—male or female, I don't care, as long as they don’t talk. I’m going to need a gaming room with the latest consoles, and if a new one comes out, I expect it delivered before I even know it exists. I’ll take naps at noon, dinner whenever I feel like it, and if I decide to spend an afternoon watching paint dry, you’ll provide the wall and someone to repaint it when I’m bored." I leaned back, spreading my hands like a king addressing court. "I am, in short, a kept man. The most gloriously, unrepentantly lazy kept man this world has ever seen. If you’re looking for a partner, I’m not it. I’m a pet. A particularly spoiled, demanding pet who will contribute absolutely nothing except my sparkling personality. Still interested?"
 I expected her to throw the teacup.
 Lilith set it down with a soft, deliberate *clink*. The smile that crept across her face was the smile of a woman who had just been handed the keys to a kingdom and told there were zero strings attached. Because in her world—a world bursting with ambitious, scheming men who would claw their way into her family’s fortune and steal control from her the moment the ink dried—I wasn’t a disaster. I was a guarantee. A husband who would never touch the ledgers, never plot against her in boardrooms, never try to turn her own power against her. I was handing her a marriage where *she* kept every scrap of control.
 For a woman like Lilith, that wasn’t a liability. It was the holy grail.
@@ -103,7 +103,7 @@ I stared at her. She gazed back, serene as a cat with cream on its whiskers. Som
 *She's supposed to be offended*, my internal monologue screamed. *She's supposed to storm out. You're supposed to chase after her laughing, explain the joke, and bond over the absurdity. Why is she saying OK?! Who says OK to this?!*
 "Ready," Ms. Miller announced, stepping back into the room with a freshly printed document. She set it on the table between us, along with two pens. "Please review the terms before signing."
 The contract was a monument to my own stupidity. Every ludicrous demand, neatly typed. I could feel a cold sweat beading on my forehead. This had to stop. Screw the bit.
-"Wait—wait" I stammered, holding my hands up as if the paper were a weapon. "What do you mean, OK? None of that was serious! It was a joke! A terrible, poorly-conceived prank to break the ice. I was trying to make you leave. I'm not actually a human-shaped financial disaster!"
+"Wait—wait" I stammered, holding my hands up as if the paper were a weapon. "What do you mean, OK? None of that was serious! It was a joke! A terrible, poorly-conceived prank to break the ice. I'm not actually a human-shaped financial disaster!"
 Lilith’s expression didn't change, but Ms. Miller’s did. She clicked her tongue, a dry, legalistic sound.
 "A joke?" Ms. Miller said, her voice flat. "Sir, under the National Marital Preliminaries Act, Section 4, Subsection B, any verbal exchange of terms during a state-registered blind date constitutes a formal negotiation. Once both parties verbally agree to the stated terms—you by proposing them, and Madam Lilith by accepting them—a binding preliminary contract is formed."
 My mouth opened and closed. A small, gold-embossed plaque on the wall suddenly seemed to scream its message: "By law, this room is under constant audio-visual surveillance for the security and contractual validity of all dates held within."
@@ -112,11 +112,6 @@ I looked from her to Lilith. Lilith took a delicate sip of her tea, her eyes spa
 "That's... that's extortion," I whispered.
 Ms. Miller offered a thin, professional smile that didn't reach her eyes. "It's the law, Mr. Doe."
 John, trapped by his own unfunny joke, is now legally bound to a woman who views his laziness as the ultimate asset.
-
-
-
-
-
 
 
 
@@ -213,7 +208,7 @@ I couldn’t stop.
 Somewhere in the distance, I heard a door open and close. Footsteps. Lilith’s voice, quiet and calm, asking a question I couldn’t quite make out. The staff answering. The sound of life, immense and orderly and utterly alien, moving around me like I was a stone dropped into a river.
 I’d wanted to be a kept man. I’d wanted to never work again.
 And somehow—through a cosmic joke so elaborate it had to have been planned by a committee of particularly petty gods—I’d gotten exactly what I asked for.
-The question was: what the hell did I do now?
+The question was: what the hell do I do now?
 
 
 
@@ -226,6 +221,67 @@ The question was: what the hell did I do now?
 
 
 
+I woke up to painted clouds and the distant sound of someone discreetly vacuuming a hallway that probably hadn't seen a speck of dust since the manor was built. For a solid thirty seconds, I just lay there, blinking at the ceiling, waiting for my brain to reboot and inform me that the previous day had been a stress-induced hallucination.
+It hadn't.
+I was still in the bed the size of a small nation. I was still wearing yesterday's clothes. And somewhere in this ridiculous palace, a woman who treated marriage contracts like quarterly earnings reports was probably already awake, conquering industries before breakfast.
+*Alright*, I thought, swinging my legs over the edge of the mattress. *First day as a trophy husband. Don't screw this up.*
+I stood, stretched, and nearly walked into a wall that turned out to be a door. A sliding panel I hadn't noticed the night before revealed a bathroom that was larger than my old office cubicle—and significantly better decorated. The shower had seven different nozzles. Seven. I didn't even know what six of them were supposed to spray.
+Forty minutes later, having accidentally triggered what I think was a steam function and very deliberately not apologised for it, I emerged wrapped in a robe that felt like it had been woven from clouds and the dreams of kittens. I found a small intercom panel near the bed and pressed the button labelled "Staff."
+"Sir?" Mrs. Hardwick's voice, calm as ever.
+"Good morning. I have a breakfast request. It's... specific."
+"We are accustomed to specific requests, sir."
+"Right. Okay. I want pancakes. But shaped like dinosaurs. A triceratops, specifically, if that's possible. Bacon, extra crispy, not a single floppy piece. Orange juice that's been freshly squeezed by someone who looked out a window while squeezing—natural light improves the flavour. And coffee. Black. In a mug that has a duck on it. A judgemental duck. If we don't have one, I'll accept a goose."
+There was a pause. The kind of pause that, in my old life, would have preceded a manager being called and possibly security.
+"Very good, sir. Will there be anything else?"
+I stared at the intercom. "No. That's... that's all."
+"Breakfast will arrive in twenty minutes."
+I sank onto the edge of the bed. I'd just asked for dinosaur pancakes and a judgemental waterfowl mug, and the response had been *very good, sir*. The limits of this new life had suddenly become very unclear, and a dangerous thought began to form in the back of my mind: *What else can I get away with?*
+The breakfast arrived in seventeen minutes. The pancakes were perfect triceratops—three of them, arranged on a plate with fruit scales and a bacon tail. The coffee came in a mug that featured a duck who looked, without question, deeply unimpressed with my life choices. I ate slowly, watching a morning news program on a screen that emerged from the footboard of the bed, and by the time I'd finished, the dangerous thought had crystallised into a full-blown plan.
+I was going to treat this like a vacation. A bizarre, possibly permanent vacation in a matriarchal fever dream where I had no responsibilities, no deadlines, and apparently no limits. And on vacation, you didn't follow rules. You didn't conform. You wore whatever you wanted, did whatever you wanted, and let the consequences be someone else's problem.
+Which brought me to my first order of business: the wardrobe.
+I found the closet—a walk-in affair that was larger than some apartments—filled with clothes that had been provided for me. Tailored suits. Crisp button-downs. Trousers in muted, respectable colours. Shoes that cost more than my first car. It was the wardrobe of a man who was supposed to look dignified while standing beside a powerful woman.
+I closed the door on it.
+The intercom buzzed again. "Mrs. Hardwick?"
+"Sir?"
+"I need new clothes. Specifically: Hawaiian shirts. The louder, the better. I want prints that make people question my sanity. Parrots, palm trees, pineapples wearing sunglasses—if it looks like a tourist exploded, I want it. Also, cargo shorts. Multiple pairs. And flip-flops. The kind that make that *slap-slap* sound when I walk. Do you have my measurements?"
+"Of course, sir. And might I ask what... occasion these are for?"
+"Life, Mrs. Hardwick. The occasion is life."
+This time there was no pause at all. "They'll be in your wardrobe within the hour."
+They were. I stood in front of the mirror forty-five minutes later, wearing a shirt covered in neon pink flamingos, khaki cargo shorts with enough pockets to store a small hardware store, and flip-flops that announced my presence with every step. I looked like I'd been abducted from a beachside barbecue and dropped into a palace. It was perfect. It was absurd. And nobody had stopped me.
+The realisation hit me like a wave: *They will literally let me do anything.*
+I walked out of the east wing in my flamingo glory, flip-flops slapping against the marble floor, and began to wander. The manor was a labyrinth of hallways and galleries, all polished stone and tasteful art. I passed a maid dusting a vase that probably dated back to the Ming dynasty. She glanced at my outfit, and her expression didn't even twitch. She just nodded. "Good afternoon, sir."
+"Good afternoon. That vase is worth more than my entire bloodline, isn't it?"
+"Quite possibly, sir."
+"Carry on."
+I kept walking. I passed another maid, this one pushing a small cart loaded with cleaning supplies. And something about that cart—the squeak of the wheels, the way she steered it around corners—triggered a memory. Supermarkets. Fluorescent lights. The rattle of a shopping cart with one wonky wheel as I pushed it through aisles in my old life, searching for discounted ramen.
+I stopped walking.
+*What if*, I thought, *I didn't walk at all?*
+I turned around and marched back to the east wing intercom. "Mrs. Hardwick, I need a shopping cart."
+"...Sir?"
+"A shopping cart. From a grocery store. The kind with the wobbly front wheel. I don't care how you acquire it. I want it brought to the east wing entrance, and I want two maids assigned to... cart duty. Pushing duty. Chariot duty. We'll finalise the title later."
+A pause. I was starting to enjoy the pauses. They were the sound of professionalism colliding with absurdity and deciding professionalism wasn't paid enough to win.
+"I'll have it arranged within the hour, sir."
+The cart arrived in thirty-two minutes. It was a standard shopping cart—slightly scratched, the left front wheel indeed wobbling like it had a personal vendetta against straight lines. Two young maids, both probably in their early twenties, stood beside it, waiting for instructions. One of them looked nervous. The other looked like she was trying very, very hard not to laugh.
+I climbed into the cart. It wasn't graceful—cargo shorts are not designed for cart-entry—but I managed, eventually, to settle into a sitting position with my legs dangling over the front and my back against the child seat flap that usually had a cartoon vegetable sticker.
+"Alright," I said, adjusting my flamingo shirt. "From this moment forward, this is my royal chariot. You two are my official cart-bearers. Your duties are as follows: push me wherever I point, stop when I say stop, and maintain a speed that is brisk but not alarming. Questions?"
+"No, sir," they said, almost in unison.
+"Then onward. To the kitchens. I need snacks."
+And so began my first proper day as John Roseworth. The cart rolled through the manor's endless corridors, its wobbly wheel squeaking a rhythm that echoed off the marble. I pointed randomly—left here, right there, let's see what's in that room—and the maids steered accordingly. We passed a sitting room with a grand piano, and I shouted, "Paint that wall orange! Bright orange! With a mural of a giant squid wrestling a pirate ship!" One of the maids—the one who'd been trying not to laugh—actually snorted.
+We reached the kitchens, where a chef in a white uniform looked up from what appeared to be an extremely complex dessert and stared at a grown man in a shopping cart wearing flamingos. She blinked once, then said, "How can I help you, sir?"
+"I need travelling snacks. Something crunchy. Something sweet. Something that won't go stale if I take an hour to eat it. Also, a beverage. Something tropical. Surprise me."
+Ten minutes later, I was being pushed down the east gallery with a bowl of spiced nuts in my lap, a plate of tiny pastries balanced on my knee, and a coconut smoothie in the cart's cup holder—the one meant for coffee, which I'd repurposed. I ate a pastry and pointed at a tapestry. "That tapestry is boring. Commission a new one. Same scene, but everyone's wearing sunglasses."
+"Noted, sir," said the left maid.
+We turned a corner and nearly collided with Mrs. Hardwick, who stepped aside with the practised grace of someone who had once, presumably, dodged actual cannonballs in a previous career. She looked at the cart. At the bowl of nuts. At my shirt. Her expression remained perfectly neutral.
+"Everything to your satisfaction, sir?"
+"Mrs. Hardwick, this is the best day of my life."
+"I'm very glad. Will you be requiring dinner in the formal dining room, or shall I have something sent to the east wing?"
+"Neither. I want dinner in the cart. Moving dinner. A progressive dinner—appetisers in the west gallery, main course in the conservatory, dessert while circling the fountain three times. Can we do that?"
+She didn't even blink. "I'll inform the kitchen of the route."
+When she'd glided away, I leaned back in the cart and stared up at the ceiling—a vaulted, painted thing with cherubs and clouds that matched my bedroom. The squeak of the wheels was a lullaby. The pastries were excellent. And somewhere in this labyrinth of wealth and absurdity, Lilith Roseworth was probably being briefed on my activities by a deeply confused security team.
+Let them brief. Let them report. I wasn't doing anything malicious. I wasn't scheming. I was just... doing whatever I wanted. For the first time in two lives, I was doing exactly what I wanted, and the world was saying *yes*.
+The cart turned another corner, and I pointed at a statue. "That statue needs a hat. A tiny top hat. Make it happen."
+"Yes, sir."
+I grinned at the painted cherubs above. This wasn't just a vacation. This was a coronation. And I hadn't even gotten to the lake yet.
 
 
 
@@ -233,574 +289,538 @@ The question was: what the hell did I do now?
 
 
 
-The first thing I did, after the laughter finally stopped echoing off my painted clouds, was decide to test the system. If Lilith Roseworth wanted a kept man, then by every mediocre god in this absurd dimension, I’d give her one. Not the charming, quietly grateful kind. The *worst* kind. The kind who’d make her regret ever saying “OK” with such terrifying serenity.
-I’d be so lazy, so demanding, so profoundly useless that she’d eventually snap. She’d come to me, all icy composure, and say: *John, we need to renegotiate.* And I’d lean back in my gaming chair, steeple my fingers, and we’d have an adult conversation about boundaries and mutual respect and how maybe I shouldn’t be legally required to never earn money.
-That was the plan, anyway.
-It lasted about four hours.
+
+
+
+
+
+After three days of being pushed around in a shopping cart—an activity that had genuinely improved my mental health by approximately forty percent—I decided to explore the manor on foot. The cart had been returned to the kitchens, where I was told the chef's assistant had started using it to haul vegetables, and I felt a strange pang of pride knowing my royal chariot had found a second career.
+Walking, as it turned out, was vastly inferior. But it did let me notice things I'd rolled past at speed.
+I was wandering the west gallery—a hallway I'd previously only seen as a blur of gold frames and disapproving ancestral faces—when a particular portrait stopped me cold. It was massive, easily ten feet tall, depicting a woman in hunting attire. She stood at the edge of a forest, one hand resting on her hip, the other holding a bow. Not a dainty, ornamental bow. A proper recurve, the kind that meant business. A quiver of arrows hung at her back, and her expression suggested she'd just shot something and was already bored with the achievement.
+I stared at it for a full minute.
+*I want to do that*, I thought. *I want to stand in a forest looking insufferably cool while holding a dangerous object.*
+The impulse was immediate, irrational, and completely non-negotiable. This, I was learning, was how my brain worked now. No more deliberating. No more weighing pros and cons. Just want, do, repeat.
+I found Mrs. Hardwick in the east wing, overseeing a team of maids who were polishing things that already looked polished. The concept of "too clean" did not exist in this household.
+"Mrs. Hardwick," I said, "I need archery equipment."
+She turned to face me, her hands clasped neatly in front of her. "Archery, sir?"
+"A bow. Arrows. Maybe one of those arm guard things so I don't snap my forearm like a twig. And a target. Several targets. A whole archery range, actually. Can we set up an archery range in the gardens?"
+"I'll see to it immediately. Will you be requiring instruction, or do you have prior experience?"
+"Zero experience. I've never held a bow in my life. I once threw a pencil at a coworker and missed. That's the extent of my projectile weapon expertise."
+She didn't even blink. "I'll arrange an instructor."
 ---
-I woke the next morning to the smell of food. Not just any food—an armada of food. A convoy. A military occupation of breakfast items rolling through my bedroom doors on a cart the size of a Smart car.
-“Good morning, sir,” said a maid I hadn’t met yet. She was young, probably early twenties, with the kind of unshakeable calm that suggested she’d been trained to serve royalty and found me merely a lateral move. “Breakfast is served. We took the liberty of preparing several options while we awaited your specific requests.”
-I blinked at the cart. Eggs. Six different styles. Pastries. Fruit arranged in geometric patterns that probably had names. A silver tureen of something steaming. A smaller cart behind it, devoted entirely to juices.
-“I didn’t request any of this,” I said. My voice was still sleep-gravelly. I’d been dreaming about spreadsheets.
-“Madam Lilith instructed us to anticipate your needs. However, we’re also prepared to accommodate any specific demands. Mrs. Hardwick mentioned you expressed interest in breakfast in bed as a non-negotiable.”
-Right. I’d said that, hadn’t I? In room 909, during my performance. My stupid, catastrophic performance.
-Slowly, a petty, slightly vicious idea began to form in my head. If they wanted to accommodate demands, I’d give them demands. Real, specific, absurd demands. The kind that would make any reasonable human being mutiny.
-“Alright,” I said, sitting up in bed and plumping the pillows behind me like a sultan. “I want eggs Benedict. But—and this is important—I want quail eggs. Poached in truffle oil. On a brioche that’s been toasted over the dying embers of a first-edition dictionary. The bacon on the side should be woven into a Celtic knot. And I want the orange juice served in a glass that’s been chilled to exactly four degrees Celsius.”
-The maid didn’t even flinch.
-“Very good, sir. Any preference on the dictionary edition?”
-I stared at her. “What?”
-“The toasting medium. We have a first-edition Webster’s 1828, or a first-edition Johnson’s if you prefer British English.”
-My mouth opened. Closed. Somewhere in the back of my mind, I heard my old boss, Dave from accounting, screaming at me about a formatting error in cell B47. That life felt very far away.
-“Johnson’s,” I croaked. “Definitely British. More… literary.”
-“Of course, sir. And the bacon: streaky or back?”
-“Streaky.”
-She curtsied—actually curtsied—and vanished with the cart to, I assumed, unmake and remake my breakfast from scratch. I lay back against the pillows, heart pounding with a strange, guilty exhilaration.
-Fifteen minutes later, the eggs Benedict arrived. The quail eggs were perfect golden teardrops. The brioche had a faint, smoky, scholarly crispness. The bacon Celtic knot was so intricate I almost felt bad eating it. Almost.
-It was the best breakfast I’d ever eaten.
-And the absolute worst victory I’d ever won.
+The range was set up within two hours. It was positioned on the east lawn, near a cluster of hedges shaped like mythological creatures—a griffin, a chimera, what appeared to be a very confused centaur. Three targets were arranged at varying distances, and a table had been laid out with equipment: three bows of different sizes, a dozen arrows, and an arm guard that looked suspiciously like it had been custom-fitted to my forearm in advance.
+The instructor arrived ten minutes later. Her name was Margaret, she was one of the housemaids I'd seen dusting picture frames, and she'd apparently been the national youth archery champion for six consecutive years before deciding that competitive sports were "too stressful" and transitioning to a career in domestic service.
+"You were a national champion?" I asked, genuinely floored.
+"Yes, sir." She had a quiet, steady voice and the kind of posture that suggested she could still hit a bullseye at fifty metres without warming up. "I retired undefeated."
+"Margaret, that's the most terrifying thing anyone in this house has said to me, and I once watched Lilith order a corporate acquisition over breakfast like she was ordering toast."
+Her lips twitched. "Shall we begin, sir?"
 ---
-Breakfast was only the beginning.
-By the end of the first week, I’d descended into full-scale domestic warfare. Not against Lilith—I barely saw Lilith. She was a ghost in her own mansion, a distant figure in tailored suits who swept through hallways at odd hours, always on the phone, always frowning slightly at something far more important than me. When we did cross paths, she’d offer a polite nod, maybe a murmured “I trust you’re settling in,” and then she’d be gone again, trailing assistants like comet tails.
-Which was fine. Perfect, really. It made my campaign of insufferable laziness easier to execute. I was, after all, not trying to annoy *Lilith* personally. I was trying to make her entire household infrastructure revolt on my behalf. If the staff cracked, Lilith would have to address it. Simple chain of command.
-So I escalated.
-I ordered the masseuse. A woman named Helga arrived, built like a Olympic swimmer, with hands the size of dinner plates and a demeanor that suggested she’d never once been surprised by human behaviour. I demanded complete silence during massages. She complied. She was so silent, so perfectly, professionally absent, that I actually forgot she was there twice and screamed when I rolled over.
-I requested a personal dresser to pick out my clothes. The woman assigned to this task, a cheerful soul named Petra, took to laying out three outfits a day with theme notes. “Monday: Coastal Indolence.” “Tuesday: Deconstructed Executive.” I wore Hawaiian shirts and cargo shorts so often that Petra began incorporating them into increasingly formal combinations. I attended a casual dinner in the manor’s smaller dining room wearing a blazer over a shirt patterned with neon-orange flamingos. Lilith, seated at the far end of the table, glanced at me once, expression unreadable, and returned to her tablet.
-I ordered the wall.
+What followed was three days of intense, all-consuming, mildly unhinged dedication.
+Day one: I learned the basics. Stance. Grip. Drawing the string. Margaret was patient in a way that suggested she'd taught beginners before, but her feedback was brutally precise. "Your elbow is too high." "You're gripping the bow like it owes you money." "Release smoothly—you're plucking the string like it's a banjo." By the end of the first day, my arms ached, my fingers were raw despite the protective tab, and I'd landed exactly two arrows on the target itself rather than the grass surrounding it. But I'd also experienced, in one single moment when an arrow flew straight and true and hit the outer ring with a satisfying *thwack*, something I hadn't felt since before I died: genuine, focused accomplishment.
+Day two: I arrived at the range at dawn. Margaret was already there, sipping tea. "I had a feeling, sir," was all she said. I shot arrows for four hours straight, broke for lunch, then shot for another three hours before my arms gave out entirely. I started hitting the target consistently. Not the bullseye—never the bullseye—but the rings around it. Margaret began nodding occasionally. Once, she said, "Better." I felt like I'd won an Olympic medal.
+Day three: I shot. I shot and shot and shot. I started adjusting for the breeze. I stopped thinking about my stance and started just... doing it. In the late afternoon, with the sun turning the sky gold, I loosed an arrow and watched it bury itself two inches from the centre. I turned to Margaret, expecting at least a smile. She studied the target, then looked at me with an expression that might have been approval on a less stoic face.
+"Adequate, sir."
+"Margaret, I would die for you."
+"That won't be necessary, sir."
 ---
-The wall was my masterpiece.
-I’d noticed, on my third day, that the east wing’s main corridor was lined with art. Landscapes. Portraits of severe women in pearl chokers. A still life of fruit that looked so real I’d tried to pick up an apple. All of it tasteful. All of it expensive. All of it, frankly, boring.
-So I picked an empty stretch of wall opposite my bedroom door and summoned Mrs. Hardwick.
-“I’d like this wall repainted,” I said. “Something cheerful. Eggshell blue.”
-By lunch, a team of painters had prepped the area, laid down drop cloths, and applied two pristine coats. The corridor smelled faintly of fresh latex. I stood in my doorway, arms crossed, watching the final brush strokes.
-“Is it dry?” I asked.
-“Not yet, sir. About two hours, with the humidity.”
-I fetched a chair from my sitting room. I placed it in the corridor, facing the wall. I sat down.
-“Let me know when it’s dry,” I said.
-The painter looked at Mrs. Hardwick. Mrs. Hardwick looked at me. She was a fortress of composure, but I caught the faintest tightening around her eyes—the micro-expression of a woman who had once managed a fifty-six-person household and was now being asked to monitor paint evaporation.
-“Of course, sir.”
-Two hours passed. I didn’t move. I watched the wall as if it might suddenly confess state secrets. The light shifted. A maid brought me lemonade. The painter, dismissed, returned to wherever painters went when they weren’t painting.
-Finally, Mrs. Hardwick informed me the wall was dry.
-“Excellent,” I said. “Now paint it again.”
-“Sir?”
-“A slightly different shade. Just a touch warmer. Eggshell blue with a whisper of… sunset.”
-This time, the hesitation lasted a full two seconds. I savoured it.
-“Very good, sir.”
+On the morning of day four, I woke up and realised I was, in fact, done.
+The obsession simply... evaporated. Like a switch had been flipped. I stood at my window, looking out at the archery range, and felt absolutely nothing. No urge to shoot. No desire to improve. I'd gotten what I wanted—the experience, the competence, the memory of that one good shot—and now my brain had moved on.
+I didn't go to the range that day. Margaret, I later learned, had anticipated this. She'd already packed up the equipment and returned to her regular duties. When I passed her in the hallway, she nodded once. "Good morning, sir."
+"Morning, Margaret. Thanks for the archery thing."
+"My pleasure, sir."
+That was it. No judgement. No confusion. Just acceptance that a man had spent three days learning archery from a former champion and then quit without warning. This world was incredible.
 ---
-By the end of the week, the wall had been repainted four times. Eggshell blue, sunset-whisper blue, robin’s-egg-after-a-rainstorm blue, and finally a colour the paint mixer had labelled, with what I assume was a straight face, “Gentleman’s Contemplative Azure.” I’d watched each coat dry. I’d kept logs. I’d been served snacks on a small side table that the staff had quietly installed beside my chair, as if my three-hour paint-watching sessions were a scheduled event.
-One afternoon, I heard footsteps behind me. Not the soft, efficient tread of a maid—these were sharper. Heels.
-“Mr. Roseworth.”
-I turned. Lilith stood at the end of the corridor, a tablet tucked under one arm, her dark honey hair swept back in a low ponytail. She was looking at the wall. Then at me. Then at the side table with its array of finger sandwiches and sparkling water.
-“Madam Roseworth,” I said, rising from my chair with an awkward, half-mocking bow. “Admiring the new shade?”
-She stepped closer. Her eyes moved over the wall with the same analytical intensity I imagined she applied to quarterly earnings reports.
-“Mrs. Hardwick tells me you’ve been exploring the textural properties of semi-gloss enamel,” she said. “Fascinating.”
-That was it. *Fascinating.* No edge. No sarcasm. Just a statement, delivered the way a biologist might note an unusual mating display.
-“I’ve also been benchmarking drying times for various atmospheric conditions,” I said, because my mouth was apparently determined to double down on every terrible decision. “The humidity in this corridor is surprisingly stable.”
-“Is it.”
-“Very stable. Ideal for drying. And watching.”
-She looked at me then—really looked. Her green eyes were unreadable, but there was something in them that wasn’t displeasure. It wasn’t amusement, either, not quite. It was more like… calibration. She was updating an internal model.
-“I’m glad you’re finding ways to occupy yourself,” she said. “Dinner is at eight. The chef is preparing a soufflé. She’d appreciate it if you arrived on time.”
-And then she was gone, heels clicking down the corridor, leaving me standing beside my wall, feeling oddly like I’d just been given a gold star for bad behaviour by a headmistress who knew all my secrets.
+The archery obsession had left me with sore shoulders and a strange, hollow restlessness. I'd spent three days doing something intensely physical, and now I was back to... what? Riding in a shopping cart? Yelling renovation ideas at tapestries? The thrill of absolute freedom was still there, but it had been joined by a creeping sense of aimlessness. I needed something. I just didn't know what.
+So I did what any reasonable person would do.
+I went to the lake.
+The lake—which I'd only glimpsed from windows—was behind the manor, a sprawling sheet of blue-green water that reflected the sky like a mirror. It was bordered by willows that trailed their branches in the shallows, and at the far end, barely visible, was a small island with a single tree. A dock extended from the lawn, and tied to it was a collection of water equipment: a rowboat, a kayak, and a large, inflatable floaty ring shaped like a giant rubber flamingo.
+I stopped walking when I saw it.
+*An inflatable flamingo*, I thought. *To match my shirt.*
+The universe was not subtle.
+Ten minutes later, I was floating in the exact centre of the lake, sprawled on the flamingo's back, my legs dangling in the water. The afternoon sun was warm but not oppressive. A gentle breeze pushed at the floaty, making it drift in slow, lazy circles. Somewhere in the distance, I could hear birds. The water lapped softly against the inflatable rubber. The sky was a perfect, cloudless blue.
+I closed my eyes. Just for a moment. Just to appreciate the warmth.
 ---
-By the second week, I took the campaign aquatic.
-The east wing had a private pool—of course it did—an elegant rectangle of heated turquoise water surrounded by potted palms and loungers upholstered in white leather. I’d been avoiding it, partly because I wasn’t sure the legality of using a pool I’d demanded as part of a joke, and partly because I was afraid of what the staff might do if I asked for assistance. But my spite had evolved. It was no longer a sharp, panicked reaction. It was a warm, settled, almost philosophical condition. If I was trapped in a gilded cage, I’d rattle every bar.
-So one afternoon, I stripped down to my swim trunks (flamingo print, courtesy of Petra) and waded into the shallow end.
-Floating was easy. The water was warm, almost body temperature, and the high ceiling echoed the gentle slap of waves against tile. I closed my eyes and let my limbs go loose.
-Before I died, when I was still a corporate drone with gray skin and a permanent neck cramp, I’d sometimes fantasize about this exact scenario. Wealth. Leisure. Absolute freedom from responsibility. In the fantasy, I’d lie by an infinity pool somewhere, a drink in my hand, the sunset painting the sky in Instagram-worthy pinks and golds. But the fantasy never included the silence. The deep, pressing, vacuum-sealed silence of having nothing to do and no one to be.
-I floated for an hour. Then two. Then I had an idea.
-“I’d like to nap,” I announced to the empty-seeming room. I’d learned by now that staff were never far, even when you couldn’t see them. “But I’m concerned I might drift into the deep end and drown. Passive countermeasures are insufficient.”
-A soft cough. Mrs. Hardwick materialised from behind a palm, which I was beginning to suspect was her natural habitat.
-“We can ensure your safety, sir. What did you have in mind?”
-I thought about it. What was the most absurd, demanding, borderline offensive request I could make? Something so ridiculous they’d have to push back?
-“Two maids,” I said. “In the water. One on either side. Their sole job is to ensure I don’t drift into any walls, edges, or dangerous depths while I’m unconscious. They’re to use gentle, non-invasive redirection. Pool noodles are acceptable.”
-Mrs. Hardwick’s expression remained placid. “Any preference on uniform?”
-“Something aquatic but dignified.”
-“Very good, sir.”
-Ten minutes later, I was floating in the centre of the pool, eyes closed, arms spread like a starfish. On my left, a maid named Sophie paddled silently, her uniform traded for a simple dark swimsuit, a pool noodle held at the ready. On my right, a woman named Grace did the same. Neither spoke. Neither touched me unless I began to drift, at which point a pool noodle would nudge me gently back toward centre, like a very polite pinball bumper.
-I fell asleep.
-I dreamed of my old office. The cubicle. The hum of fluorescent lights. Dave from accounting appeared, holding a spreadsheet, his mouth opening and closing with no sound. I tried to run, but my feet were stuck in quicksand made of TPS reports. Then the dream shifted, and I was in the Roseworth manor, except the corridors went on forever and every wall was painted Gentleman’s Contemplative Azure. I opened a door and found Lilith inside, looking at me with those forest-green eyes. She said, “Fascinating,” and I woke up gasping.
-I was still floating. Sophie and Grace were still there, paddling gently, their faces professionally blank. The afternoon light had shifted. I’d been asleep for nearly two hours.
-“Sir is awake,” Sophie murmured, and they guided me to the pool steps.
-I crawled out, dripping, and wrapped myself in a towel that someone had left warming on a heated rack. My skin was pruned. My limbs were heavy. My brain felt like it had been lightly scrambled.
-It had worked. My most absurd demand, fulfilled without question. I’d napped in a pool while two women prevented my drowning, and the household had treated it like a perfectly normal Tuesday.
-And somehow, that was the worst part.
+I woke up freezing.
+The sun was gone—not setting, not dimming, *gone*. The sky above was deep velvet studded with stars, and a fat, silver moon hung low over the trees. The air had turned cool, the kind of cool that reminded me autumn was coming. The willows at the shore were dark silhouettes, and the water around me was still.
+I was in the middle of the lake. I had no oar. The floaty flamingo, which had seemed so whimsical in daylight, now bobbed gently in the darkness like a harbinger of poor decisions.
+*Alright*, I thought, blinking groggily. *This is a situation.*
+The manor was lit up in the distance, every window glowing gold. I could see figures moving on the back lawn—a lot of figures, actually. They were running. They had flashlights. One of them appeared to be dragging a small boat toward the dock.
+I squinted. Was that... a helicopter?
+No. No helicopter. But they definitely had spotlights now. Someone was shouting. The word "search" drifted across the water, followed by "pattern" and "unacceptable" and, I'm fairly sure, "how do you lose a husband."
+I felt a brief, mild pang of guilt. I'd been gone for... I checked my wrist for a watch I wasn't wearing. Hours. Probably hours. I'd fallen asleep on an unmoored floaty and drifted to the middle of a lake, and the entire Roseworth household staff had apparently mobilised a search and rescue operation.
+*I should probably swim back*, I thought.
+So I did. I slid off the flamingo—my faithful, silently-judging steed—and began a steady, unhurried front crawl toward the shore. The water was warmer than the air, and swimming felt good after three days of archery. My shoulders loosened. My mind cleared. I took my time.
+By the time I was halfway to shore, the spotlights had found me.
+"There! In the water!"
+"Sir! Sir, are you injured?!"
+"Is that... is he *swimming*?"
+I waved without stopping. "I'm fine!" I called. "I fell asleep! The flamingo betrayed me!"
+I reached the dock a few minutes later and hauled myself up, dripping and barefoot—my flip-flops had apparently abandoned ship somewhere during the nap. The staff had gathered on the lawn: maids, groundskeepers, security. Mrs. Hardwick was at the front, her expression unreadable, her hands clasped so tightly her knuckles were white. Behind her, several women were lowering the search boat they'd been about to launch. Two others were holding rescue blankets and what looked like a medical kit designed for catastrophic injury.
+"I'm very sorry," I said, dripping onto the dock. "I didn't mean to cause a panic. The floaty was just really comfortable."
+"Sir," Mrs. Hardwick said, her voice slightly strained in a way I'd never heard before, "we believed you had drowned."
+"For five hours?"
+"We could not locate you for five hours, yes."
+I winced. "In my defence, I've never had a flamingo before."
+Silence. The kind of silence that suggested fifty-six people were simultaneously reconsidering their career choices.
+Then, from above, I heard it. Faint at first, then unmistakable.
+Laughter.
+I looked up. In a third-floor window, silhouetted by the warm light behind her, stood Lilith Roseworth. She was leaning against the frame, one hand pressed to her mouth, her shoulders shaking. The sound drifted down to the lawn—not cruel, not mocking, but genuine. The laugh of someone who had just watched her accidental husband float out to sea on an inflatable bird and swim back with seaweed in his hair while the entire household lost its collective mind.
+It was the first time I'd heard her laugh.
+*Alright*, I thought, dripping lake water onto the perfectly manicured lawn. *Maybe I'm not the only one figuring out what to do with this marriage.*
+One of the maids wrapped a towel around my shoulders. The security team started dispersing, muttering into radios. Mrs. Hardwick took a very long breath and said, "Perhaps, in future, sir, you might nap with a life jacket."
+"Noted," I said. "Also, can someone retrieve the flamingo? It's still out there. I think it's seen things."
+Above us, Lilith's laughter had faded, but I could still see her silhouette in the window. She lingered there for a moment longer, then raised a hand—a small, amused wave—and stepped back into the light.
+I waved back, even though she probably couldn't see it.
+Then I sneezed, and Mrs. Hardwick's expression shifted from relief to immediate, maternal concern. "Hot bath, dry clothes, and soup," she announced, steering me toward the manor like I was a wayward toddler. "Immediately."
+"Yes, ma'am," I said, and let myself be steered.
+Behind me, out on the dark lake, the inflatable flamingo bobbed alone under the moon, waiting for retrieval and probably plotting its next betrayal.
+I'd deal with it tomorrow. I had a feeling I had plenty of tomorrows to burn.
+
+
+
+
+
+
+
+
+
+
+
+
+
+The weeks that followed the lake incident settled into a rhythm that I can only describe as gloriously unhinged. I'd developed a reputation among the staff as someone who required constant, low-level vigilance—like a toddler with a credit card and zero survival instincts. They weren't wrong.
+I took up the bagpipes for approximately four hours. I'd heard one of the groundskeepers humming a tune I didn't recognise, asked what instrument it was, and decided on the spot that I needed to master it. The bagpipes arrived by special courier. I made a noise that sounded like a goose being folded in half, declared myself a prodigy, and never touched them again. They were last seen being carried to a storage room by two maids who looked profoundly relieved.
+I decided the east wing needed a slide. Not a staircase—a slide. A spiral one, running from the upper gallery down to the main hallway. Mrs. Hardwick informed me that architectural modifications required approval from the estate management board. I asked if the board would say yes. She said, "Almost certainly not, sir." I asked if I could build a temporary slide. She said, "I'll see what can be arranged." Two days later, an inflatable emergency evacuation slide—the kind used on aircraft—had been installed in the east stairwell. I used it seventeen times before lunch.
+I developed a brief but intense interest in competitive cheese-rolling. I asked the kitchen to produce a wheel of cheese specifically for rolling down the main staircase. The chef, a woman named Colette who had trained in Paris and apparently possessed infinite patience, produced a wheel of something called "aged cheddar unsuitable for consumption" that was, she assured me, "ideal for recreational propulsion." It exploded on the third step. A team of maids cleaned it up. I apologised profusely. Colette told me it was the most entertainment she'd had in years.
+I tried to teach the meditation pool's resident koi fish to respond to their names. I didn't know their names. Neither did they.
+I demanded a "breakfast in bed" experience that involved the bed being carried outside so I could eat overlooking the lake. This was accomplished by six groundskeepers, a hydraulic lift, and what I was later told was "a concerning amount of improvisation." I ate two croissants while watching the sunrise, thanked everyone involved, and then fell asleep again. The bed was returned to my room while I was still in it. I woke up confused but deeply impressed.
+Through all of this, I was dimly aware that I was being watched. Not in a sinister sense—or at least, not in a way that felt sinister. Cameras were everywhere in the manor, their presence politely unmentioned but obvious if you looked. The security team logged my movements. The maids undoubtedly reported to someone. And somewhere in the manor's nerve centre—probably a sleek office full of screens that looked like a Bond villain's lair—Lilith Roseworth was compiling data on her accidental husband.
+I didn't mind. I had nothing to hide, which was itself the point. Let her watch. Let her see me try to teach the koi fish. Let her see me fall off the inflatable slide. Let her see me do absolutely nothing useful for weeks on end.
+I was, I realised, building a case for my own defence without even trying.
 ---
-The hollow feeling started that evening.
-I was sitting in my gaming room—my state-of-the-art, three-screen, ergonomic-chair, full-library gaming room—staring at a title screen I’d been too listless to click past. The music looped, a cheerful, upbeat theme that felt like it was mocking me.
-I’d won. I’d thrown every ridiculous demand I could think of at the Roseworth estate, and they’d caught them all like golden retriever puppies chasing tennis balls. No breaking point. No negotiation. No sign that Lilith even noticed, beyond that single, infuriating “fascinating.”
-I had everything I’d ever wanted. No work. No deadlines. No Dave. Just fine clothes and gourmet food and tropical-print swim trunks and a staff of fifty-six who would apparently do anything short of murder.
-So why did I feel like I was slowly vanishing?
-I thought about my old life. The one that had killed me at twenty-nine. It wasn’t the work I missed—God, no. I’d never miss the work itself, the grinding tedium of spreadsheets and quarterly reports and the soul-crushing fluorescent buzz. I’d been good at it, sure. Competent. That was the word Dave had used in my last performance review, right before he asked me to work through the weekend. “Competent.” It had felt like an insult at the time.
-But I missed being *able*. I missed the little hit of satisfaction when a formula worked, when numbers aligned, when something I’d made or fixed or adjusted clicked into place. I missed having hands that were good for something besides holding a controller or gesturing at a wall.
-I looked down at my fingers. Soft. Pale. Uncalloused. The fingers of a man who had never done anything real in his life.
-I turned off the console. The silence rushed in. Outside my window, the gardens were perfect, the hedges trimmed into geometric shapes that probably had Latin names. The sea glittered in the distance.
-I was a pet. A well-kept, expensively accessorised pet. And the woman who owned me was so completely unbothered by my existence that she’d funded my wall-painting experiments like she was sponsoring a mildly interesting art project.
-What did Lilith actually think of me? Did she think at all? I’d catch glimpses of her sometimes, through windows or at the far end of corridors. Always moving. Always busy. She’d check in with Mrs. Hardwick, glance at a tablet, nod once, and disappear again. I’d overheard fragments of conversations:
-“…still watching the west corridor wall?…”
-“…pool nap duration increasing…”
-“…no, no complaints from the staff. He’s very… quiet…”
-I was a data point. An interior decoration with a pulse.
-But then, a few nights after the pool nap incident, I wandered into the kitchen at two in the morning, looking for a glass of milk. The kitchen wasn’t empty. Lilith was there, barefoot, wearing a silk robe, her hair loose around her shoulders. She was staring into the open refrigerator like it held the answers to the universe.
-She looked younger like this. Softer. Almost human.
-“Oh,” I said, freezing in the doorway. “Sorry. I’ll just—”
-“Stay.” She didn’t turn around. “I was about to make tea.”
-We ended up sitting across from each other at the massive kitchen island, a pot of jasmine tea between us. She poured. I wrapped my hands around the warm cup. The silence stretched. It wasn’t hostile, but it wasn’t comfortable either. It was the silence of two people who had no idea how to talk to each other.
-“I’m not what you expected,” I said finally, because I was too tired to be strategic.
-She took a sip of tea. “No. You’re not.”
-“I meant the date. The demands. I wasn’t serious.”
-“I know.”
-That caught me off guard. “You know?”
-“I knew the moment you said ‘yo’ upon entering the room. You were flagrantly, almost theatrically, insincere.” She set her cup down. “But the terms were interesting. So I accepted them.”
-“Interesting,” I repeated. “You keep using that word.”
-“I mean it.” She met my eyes across the island. “Do you know how many ambitious men have tried to marry into my family? Men who arrive full of charm and business proposals and carefully concealed schemes? They smile well. They shake hands. They wait. And then, inevitably, they try to take something that isn’t theirs.”
-I swallowed. “And I didn’t.”
-“You didn’t. You arrived, announced your intention to never touch my money or my business, demanded a million dollars with all the grace of a hostage negotiator who’d been handed the wrong script, and then looked genuinely horrified when I agreed.” The corner of her mouth twitched. “It was the most honest proposal I’ve ever received.”
-I didn’t know what to say to that.
-“I’m not saying this to flatter you,” Lilith continued. “I’m explaining why I haven’t interfered with your… activities. You’re testing boundaries. That’s rational. I’ve been waiting to see what you’d do when you realised they weren’t going to break.”
-“And what have I done?”
-“You’ve watched paint dry.” Again, that almost-smile. “You’ve floated. You’ve played video games. You’ve been, in short, exactly what you said you’d be. It’s… reassuring.”
-Reassuring. There it was again. I was a guarantee. A very expensive, very non-threatening insurance policy.
-But as she rose from her stool, teacup in hand, she paused beside me. Her robe brushed my arm. She smelled of jasmine and something sharper, like winter air.
-“One question, John,” she said quietly. “Before the date. Before the contract. Before all of this. What did you actually want? When you imagined your life, what did you want to do with it?”
-I opened my mouth. No sound came out. She waited, green eyes patient, and I realised with a cold, sinking clarity that I had no answer. The old John wanted to stop working. The new John wanted… what? To drift? To float? To be a kept man and nothing else?
-She nodded, as if my silence had told her everything she needed.
-“Think about it,” she said. “You have the time.”
-And then she was gone, leaving me alone in the vast, gleaming kitchen with a cooling cup of tea and a question I’d been avoiding for two entire lifetimes.
-I had everything I’d ever wanted.
-And it was slowly, imperceptibly, driving me insane.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-The invitation arrived on a Tuesday, embossed on paper thick enough to stop a knife.
-"THE ROSEWORTH QUARTERLY GALA," it announced, in gold letters that probably cost more than my previous life's monthly rent. "An evening of society, influence, and strategic partnership. Attendance is mandatory for all household principals and their spouses."
-Mandatory. There was that word again. The word that had gotten me into this mess in the first place.
-I turned the invitation over in my hands, sitting cross-legged on my bed, still in my flamingo-print pajamas. The marriage contract, which I'd finally read in full during one of my wall-watching sessions, specified four public appearances per year. Four galas, four charity events, four excuses for rich people to stand around sipping champagne while pretending they cared about anything besides each other's net worth.
-"Sir?" Petra appeared in my doorway, already holding her theme-board. "I've prepared three options for the gala. Option one: 'Midnight Sophisticate.' Option two: 'Austere Elegance.' Option three—"
-"No."
-She paused. "Sir?"
-"No to all of them." I swung my legs off the bed and stood up, a slow grin spreading across my face. For three weeks I'd been testing the household's tolerance for absurdity. They'd absorbed every blow. They'd painted walls, nannied me in the pool, served me breakfast embers of British literature. But a public event? In front of Lilith's peers, rivals, and the vultures who'd love nothing more than to see the Roseworth heir humiliated?
-This was different. This was a venue where my laziness would actually have consequences. Where Lilith would finally, *finally* crack.
-"Petra," I said, "I have a vision."
+The dinner invitation arrived on a Tuesday.
+I was in the conservatory at the time, attempting to identify different types of ferns by smell alone—a project that had seemed profound at breakfast but was revealing itself to be deeply stupid by mid-afternoon—when a maid appeared with a small, cream-coloured envelope on a silver tray.
+"From Madam Lilith, sir. Dinner this evening in the small dining room. Seven o'clock."
+I opened the envelope. The handwriting was precise, elegant, and wasted no words: *John—Dinner. Small dining room. 7pm. We should talk. —L.*
+"Talk," I said aloud. "'We should talk.' That's either very normal or extremely ominous."
+The maid, wisely, offered no opinion.
+I spent the next three hours in a state of mild anxiety. "We should talk" was, in both my lives, the universal prelude to something unpleasant. In my old world, it had meant performance reviews, layoffs, and once, memorably, a roommate telling me he'd been using my toothbrush for six months "by accident." Here, it could mean anything. Divorce? Renegotiation? A polite request that I stop accosting the koi?
+I considered wearing one of the suits from my closet, decided that would be a betrayal of everything I'd become, and compromised by putting on my least offensive Hawaiian shirt—a blue number with subtle palm trees that only screamed at about sixty percent volume.
+The small dining room turned out to be small in the same way the Atlantic was a pond. It sat perhaps twenty people, with a table of dark, polished wood, a fireplace large enough to roast a boar, and chandeliers that cast everything in a warm, flattering glow. Lilith was already seated when I arrived, at the head of the table, a glass of white wine by her hand.
+"You're on time," she said. It wasn't surprise, exactly. More like observation.
+"I'm a man of many unexpected qualities." I sat down across from her—not at the far end, which would have felt ridiculous with only two of us, but two seats down, close enough to talk without shouting. "Also, I was hungry."
+"Mrs. Hardwick mentioned your appetite. Particularly the dinosaur pancakes."
+"The triceratops was a masterpiece. I almost felt guilty eating it."
+"But only almost."
+"Almost."
+The first course arrived—some kind of soup, pale green, with a swirl of cream on top. I didn't recognise the flavour, but it tasted expensive. We ate in silence for a moment, and I became acutely aware of how little we actually knew each other. We'd signed a marriage contract, exchanged maybe a hundred words total, and then spent weeks in the same building without a single meal together. She'd been... absent. Working, presumably. Running an empire while I taught koi fish imaginary names.
+"What have you been doing?" she asked, her tone casual but her eyes sharp. "I've seen the reports, but I'd rather hear it from you."
+"Reports?"
+"Security briefings. I receive a daily summary."
+"Daily." I set down my spoon. "You get a daily report on my activities."
+"Of course. You're my husband. You live in my house. You've commandeered a shopping cart, attempted to install a slide, and fallen asleep on an unmoored floatation device. I would be a poor businesswoman if I didn't keep track of my assets."
+"I'm an asset now?"
+"All husbands are assets," she said, and took a sip of wine. "The question is what kind. Some appreciate. Some depreciate. Some turn out to be liabilities."
+I leaned back in my chair. "And what kind am I?"
+She considered me for a moment. The soup sat cooling between us, forgotten.
+"Honestly? I haven't decided. You're... unusual."
+"That's a very diplomatic way of saying 'potentially insane.'"
+Her lips twitched. "I have a team of analysts, and none of them can figure out what you're doing. You don't make calls. You don't access financial systems. You don't network. You don't even leave the estate. You've spent the last three weeks trying to befriend fish and demanding cartoon-shaped breakfast foods."
+"The pancakes were dinosaur-shaped. Cartoons are animated. Different medium entirely."
+"You're not helping your case."
+"What case? I didn't know there was a case."
+"There's always a case, John." She set down her wine glass with a soft clink. "In my world, every man who marries into a family like mine has an angle. Some want money. Some want power. Some want access—to information, to connections, to the kind of influence that can't be bought." She paused. "You asked for everything up front, and then you asked for nothing. Do you understand how strange that is?"
+I understood more than she knew. I'd died in a world where people chased money until it killed them. I'd been one of those people. The idea of scheming for more of anything in this life felt not just exhausting but blasphemous.
+"Maybe I'm just lazy," I said.
+"Are you?"
+"I took a nap on a lake and drifted out of communication range for five hours. I think the evidence speaks for itself."
+She didn't laugh, but something in her expression shifted. The analytical sharpness softened, just slightly, replaced by something that looked almost like curiosity.
+"The security feeds show you talking to yourself," she said. "Late at night. In your room. You say things that don't make sense."
+I froze. The soup suddenly felt very cold in my stomach.
+"Things like?" I asked, keeping my voice light.
+"'Two lives.' 'Overwork.' You mentioned a coworker named Dave who needed spreadsheets. You don't have a coworker named Dave. You haven't worked a day since we met. And before that, according to every record I can find, you were a perfectly ordinary eighteen-year-old living with your mother."
+Silence. The fire crackled. Somewhere in the distance, a maid was probably dusting something priceless.
+"Either you have an extremely active imagination," Lilith said, "or there's something you're not telling me."
+I looked at her. At those forest-green eyes, calm and calculating. At the woman who'd taken my absurd demands and built a legally-binding future out of them. At the woman who watched me sleep on a floaty and laughed for the first time.
+*What would happen*, I thought, *if I told her the truth?*
+Probably institutionalisation.
+"Past life," I said, waving a hand dismissively. "It's a joke. A bit. I like to imagine I was someone else before all this—some poor office drone who worked himself to death and got reincarnated into a world where men don't have to do anything. It's a coping mechanism. You know, for the whole 'married to a stranger in a bizarre matriarchy' thing."
+"Bizarre matriarchy."
+"I mean that in the most respectful way possible."
+She studied me for a long moment. I could practically see the gears turning behind her eyes—the same analytical machinery that had probably dissected a thousand business proposals.
+"And in this imagined past life," she said slowly, "you worked. Too much. Until it killed you."
+"Metaphorically."
+"Of course. Metaphorically."
+Another pause. Then she did something unexpected. She smiled. Not the polite, controlled smile of a CEO greeting shareholders. A small, genuine, almost wry smile.
+"That explains the pancakes," she said.
+"The pancakes?"
+"You've been given unlimited freedom for the first time in your life—real or imagined—and you're using it to do everything you couldn't do before. Dinosaur pancakes. Slides. Napping on lakes." She raised her wine glass. "It's not laziness. It's recuperation."
+I stared at her. "That's... actually quite insightful."
+"I'm quite intelligent. One of my more annoying qualities, I'm told."
+The soup was replaced by the main course—fish, I think, though the sauce was so elaborate I couldn't identify the species. We ate in a silence that felt different from before. Less evaluating. More... companionable.
+"What was he like?" Lilith asked eventually. "In your imagined past life. The office drone."
+I hesitated. Telling the truth felt dangerous. But weaving a fiction that was too close to the truth felt... right. Cathartic.
+"Tired," I said. "All the time. He woke up tired, worked tired, went to bed tired. His life was spreadsheets and deadlines and a boss who didn't know his name. He was good at his job, but it didn't matter. The work just kept coming. And then one day, his body decided it had had enough."
+"That's not a joke," Lilith said quietly.
+"No. I suppose it's not."
+"What happened to him?"
+I met her eyes. "He got a second chance. In a very strange place. And he decided he wasn't going to waste it."
+Something passed between us. Not understanding, exactly—how could she understand?—but the beginning of it. The shape of it. A door, cracked open.
 ---
-The night of the gala, I stood before my mirror and admired my handiwork.
-The blazer was Petra's contribution: immaculate charcoal wool, tailored to within an inch of its life, the kind of garment that whispered "old money" and "I own a senator." Beneath it, however, was a Hawaiian shirt so loud it could wake the dead. Neon yellow. Covered in pink flamingos wearing sunglasses. The cargo shorts were khaki, baggy, and ended well above my ankles, revealing shins so pale they reflected light.
-"Sir," Petra said, her voice carefully neutral, "the blazer does not fully mitigate the... statement."
-"That's the point."
-I'd combed my hair into something that looked like I'd been electrocuted and then given up halfway through fixing it. I'd accessorized with flip-flops. Actual rubber flip-flops. The kind that made a *slap-slap-slap* sound when you walked on marble.
-Lilith was waiting in the foyer. I heard her before I saw her—the low murmur of her voice, probably on a call, probably closing a deal, probably doing something that actually mattered while I prepared to torpedo her social standing.
-I rounded the corner.
-She was stunning. There was no other word. Her gown was deep emerald, the exact shade of her eyes, cut in clean, architectural lines that made her look like she'd stepped out of a painting that hung in a museum that had a wing named after her family. Her hair was up, secured with what looked like actual emeralds. Her heels added three inches to an already commanding height.
-She turned. She saw me.
-For one glorious, perfect moment, her composure cracked. Her eyes traveled from my electrocuted hair to my flamingo shirt to my cargo shorts to my flip-flops. Her lips parted. Her phone call trailed off mid-sentence. The assistant beside her actually dropped a tablet.
-"Mr. Roseworth," Lilith said, after a very long pause. "That's... quite an ensemble."
-"Thank you." I gave her a jaunty salute. "I call it 'Coastal Unemployment.' Petra helped."
-"I did not," Petra muttered from somewhere behind me.
-Lilith's expression flickered—something I couldn't read—and then smoothed back into its usual serene mask. "The car is waiting," she said. "Shall we?"
-No fight. No demand to change. No icy ultimatum. Just... acceptance.
-I felt the first prickle of unease as I flip-flopped after her toward the waiting limousine.
+After that night, dinner together became a regular thing.
+Not every night. Lilith was too busy for every night, and I had a demanding schedule of floating and impulse-hobbies to maintain. But twice, sometimes three times a week, a cream-coloured envelope would appear on a silver tray, and I'd find myself in the small dining room, eating food I couldn't pronounce and talking to my wife.
+I learned about her world. The ratio—one man to every thirty-five women, though it fluctuated by region. The history of how it had happened: a genetic bottleneck centuries ago, a series of wars that had disproportionately killed men, a virus that had targeted male infants. The resulting society: female-dominated, with men as protected assets, valued for reproduction and companionship but rarely for leadership. The bachelor tax, which I'd seen on the news my first week here, designed to incentivise marriage and maximise the pairing of the limited male population. The Bureau of Male Welfare, which sounded benevolent but which Lilith described with a particular edge in her voice—"They protect men the way a museum protects paintings. Under glass. Never touched. Never free."
+I asked odd questions. "Why does your world have smartphones but no social media?" (She explained that the early internet had developed differently, prioritising commerce and research over social connection.) "Why are there so few men in the military?" (She gave me a look and said, "Would you send a limited resource into combat?") "Why does everyone look at me like I'm a rare orchid?" (She said, "Because you are.")
+She asked about me. My childhood—the fabricated memories of this body I'd inherited, which I'd researched well enough to describe convincingly. My mother—"terrifyingly energetic" was my description, and Lilith nodded like she'd already read the file. My interests—"currently koi fish, previously cheese, subject to change without notice."
+And sometimes, she'd circle back to my "past life" stories.
+"Tell me more about the office drone," she said one evening, over dessert. Chocolate mousse. I'd eaten two servings.
+"He wasn't very interesting."
+"You bring him up often. I think you miss him."
+"I don't miss him. I pity him. He wasted his life."
+"What would he think of you now?"
+I considered this. "He'd be horrified. Then jealous. Then he'd ask if there were spreadsheets involved, and when I said no, he'd probably cry with relief."
+"What a strange fantasy," she murmured.
+"We all cope differently."
+Her eyes lingered on me, and I had the distinct feeling she was filing away every word for later analysis. But her expression was softer now than it had been during our first dinner. Warmer. She'd stopped looking at me like a puzzle to be solved and started looking at me like... I wasn't sure. Something else.
 ---
-The gala was held at a venue that looked like a museum had mated with a bank and produced a very expensive, very boring offspring. Crystal chandeliers. Marble floors. A string quartet playing something that sounded like it had been composed specifically to make you feel underdressed. The guests were a sea of black tie and couture, every woman in gowns that cost more than cars, every man—all three of them—in suits so sharp they could draw blood.
-I counted the men as we walked in. Three. Out of maybe two hundred guests. They were all older, distinguished, each escorted by women who hovered with the careful vigilance of bodyguards at a diplomatic summit. None of them were wearing flamingo print.
-"Remember," Lilith murmured as we approached the entrance, "you're required to remain for at least two hours. After that, you may retreat to the car if you wish. Try not to—" She paused, clearly searching for diplomatic phrasing. "Try not to start any international incidents."
+The gala invitation wasn't an envelope. It was a conversation.
+I'd been at the manor for nearly two months when Lilith found me in the gaming room, where I was losing spectacularly at a racing game that appeared to have been designed by someone who'd only heard about cars through oral tradition. She stood in the doorway for a moment, watching me drive into a wall for the fourth consecutive time.
+"You know you can brake," she said.
+"Braking is for people with something to live for."
+She didn't smile, but the corner of her mouth twitched. "I need to inform you of an obligation."
+My hands froze on the controller. On-screen, my car exploded. "Obligation" was, in my experience, the least fun word in the English language.
+"The Roseworth Foundation Annual Gala," she continued. "Three weeks from Saturday. Black tie. Eight hundred guests. The most important social event of our calendar. As my husband, you'll be expected to attend."
+I turned away from the screen. "Black tie?"
+"Yes."
+"As in, a suit?"
+"As in, a tuxedo."
+I looked down at my current outfit: a shirt covered in neon green sea turtles, cargo shorts with an unidentified stain from the cheese-rolling incident, and one flip-flop—the other had been lost somewhere in the east wing and I hadn't bothered to find it.
+"I don't wear suits," I said.
+"You have several. They're in your closet."
+"I know. I've been using one as a tablecloth."
+A pause. "You've been using a five-thousand-dollar suit as a tablecloth."
+"For my snack table. It catches the crumbs nicely."
+Lilith closed her eyes for a moment. When she opened them, her expression was the same one Mrs. Hardwick wore when I asked for dinosaur pancakes: resigned professionalism papered over deep, structural bewilderment.
+"The gala is important," she said. "It's where alliances are formed. Where reputations are made or broken. Where the most powerful families in the country gather to see and be seen. If my husband shows up looking like he's been shipwrecked, it will be noticed."
+"I could show up looking like I've been shipwrecked on purpose. Make it a theme."
+"John."
+"Lilith."
+We looked at each other. I was, I realised, genuinely curious what would happen if I pushed this. She'd given me everything I'd asked for so far—the absurd wardrobe, the shopping cart, the inflatable slide. She'd watched me drift out to sea and laughed. But this was different. This was her world. Her reputation. Her carefully-maintained empire of influence.
+I wondered if she'd force the issue. I wondered if I'd let her.
+She sighed. It was a small sigh, but it contained multitudes: exasperation, resignation, and something that might have been the first stirrings of genuine, hard-won affection.
+"You won't wear the suit, will you?"
+"Absolutely not."
+"Even if I asked politely?"
+"Politeness has nothing to do with it. Suits are a symbol of everything I rejected when I signed that contract. I'm a kept man. Kept men don't wear tuxedos. They wear whatever they want, and everyone else has to pretend it's fine."
+"That's not how society works."
+"It's how my society works. I'm a society of one. Population: me. Dress code: tropical."
+She studied me for a long moment. Then, inexplicably, the corner of her mouth twitched again.
+"Fine," she said. "Wear what you want."
+I blinked. "Really?"
+"Really. But understand this: if you walk into that gala in a Hawaiian shirt and cargo shorts, every person in the room will be watching you. Judging you. Whispering about you. You'll be the most talked-about person there, and not in a flattering way."
+"So I'll be the entertainment."
+"You'll be the scandal."
+"Scandals are just parties with better stories." I grinned at her. "Besides, you knew what you were signing up for. The contract was very clear: 'gloriously, unrepentantly lazy kept man.' I believe those were my exact words."
+"I believe they were, yes."
+"And you still said yes."
+She was quiet for a moment. Then she pushed off the doorframe, shaking her head with an expression that was half defeat and half—unless I was imagining it—anticipation.
+"Three weeks," she said. "Try not to lose any more flip-flops before then."
 "No promises."
-We reached the door. A uniformed attendant asked for our invitation. I saw her eyes drop to my flip-flops and stay there, frozen, like a computer processing an irrecoverable error.
-Then I shed the blazer.
-I'd planned this moment. Rehearsed it, even. In one fluid motion, I slipped the charcoal wool off my shoulders, revealing the full, unfiltered glory of my Hawaiian shirt. I handed the blazer to the attendant with a gracious nod.
-"Check this, please. It's Armani."
-Lilith stared at me. The attendant stared at me. Several nearby guests turned, their conversations dying mid-word as they took in the neon-yellow-and-flamingo spectacle in their midst.
-I stuffed my hands in the pockets of my cargo shorts and grinned.
-"Shall we?"
+She walked away, and I turned back to my racing game, where my car was still gently smouldering at the bottom of a digital ravine. I unpaused it and immediately drove off a cliff.
+*Three weeks*, I thought, as my car tumbled into the void. *Three weeks until I walk into a room full of the most powerful people in the country dressed like a tourist who got lost on the way to the beach.*
+I couldn't wait.
+
+
+
+
+
+
+
+
+
+
+
+The three weeks between Lilith's announcement and the gala passed in what I can only describe as a fever dream of increasingly questionable decisions.
+I attempted to learn the harp. I declared the east wing's colour scheme "too beige" and spent an afternoon directing a team of painters to add "accent walls" that somehow ended up looking like a tropical sunset had vomited across the hallway. I commissioned a portrait of myself riding the inflatable flamingo like a noble steed. I asked the kitchen to invent a new flavour of ice cream and received a bowl of something called "maple-bacon-rosemary surprise," which was, against all odds, delicious. I demanded to learn the full names and life stories of three randomly selected staff members, then promptly forgot them and asked again the next day.
+Through it all, Lilith watched. I knew she was watching. Her reports were probably getting thicker by the day, and somewhere in her office, an analyst was trying to graph my attention span and getting a flat line.
+But something had shifted since our dinners had started. Her presence in the manor became more frequent—not constant, but less absent. I'd catch glimpses of her crossing a hallway, dictating something to Ms. Miller, pausing to examine a flower arrangement as if it were a quarterly report. Once, I saw her standing in the doorway of the gaming room while I was losing at the racing game again. She didn't say anything. She just watched for a few seconds, shook her head slightly, and walked away. But I could have sworn she was smiling.
+The night of the gala arrived with the inevitability of a tax deadline.
+I stood in my closet—the walk-in one, not the one I'd converted into a snack storage facility—and surveyed my options. The suits hung in silent, dignified reproach on one side. My collection of Hawaiian shirts, which had multiplied like particularly colourful rabbits over the past two months, bloomed on the other.
+The choice was obvious. The question was which shirt.
+I selected my finest specimen: a brilliant scarlet number covered in golden macaws, each one slightly larger than life, their wings spread in mid-flight against a background of electric green palm fronds. The pattern was so loud it practically had a sound. I paired it with khaki cargo shorts—pressed, because I wasn't a savage—and my sturdiest flip-flops. The ones with the bottle opener on the sole. I didn't drink beer, but I respected the engineering.
+I examined myself in the mirror. I looked like a man who had been ejected from a cruise ship for disorderly conduct and was absolutely at peace with his choices.
+"Perfect," I said to my reflection.
+My reflection, wisely, offered no counterargument.
 ---
-For the first hour, I was a social hand grenade.
-I mingled. Badly. I introduced myself to a shipping magnate as "John Roseworth, professional kept man" and watched her choke on her champagne. I asked a tech CEO if her company made video games and, when she said no, informed her that was "a missed opportunity, honestly." I complimented a woman's necklace and then asked if it was heavy, because it looked heavy, and did her neck ever get tired, because mine would. I found the hors d'oeuvres table and stationed myself there, eating a truly heroic number of tiny quiches while offering unsolicited reviews ("This one's good, but it needs more... egg").
-Throughout it all, I kept sneaking glances at Lilith. Waiting for the storm. The cold fury. The tight-lipped "we need to talk." Because surely, surely, this was crossing a line. I wasn't just being lazy inside the mansion anymore. I was doing it in public. In front of people who mattered. People whose opinions could affect her business, her deals, her carefully cultivated image as the Ice Queen of the Roseworth empire.
-But every time I looked at her, she was... watching. Just watching. Her expression unreadable, her posture perfect, a glass of champagne held loosely in one hand. She didn't intervene. She didn't steer me away from the most important guests. She just observed, like a scientist who'd released a particularly strange specimen into the wild and was curious to see what it would do.
-It was maddening.
-I escalated. I found a grand piano in a corner of the ballroom—a gorgeous, gleaming Steinway that probably cost more than my entire previous life—and sat down at it. I didn't know how to play piano. I'd never touched a piano. But I cracked my knuckles, adopted a look of intense concentration, and played "Chopsticks" with all the gravitas of a concert pianist.
-The room went quiet.
-I finished with a flourish, stood, and bowed. Someone, somewhere, clapped once and then stopped, as if unsure whether applause was appropriate or would simply encourage me.
-I looked at Lilith.
-She was laughing.
-Not a polite chuckle. Not a restrained, socialite's titter. Actual, genuine laughter, the kind that crinkled the corners of her eyes and made her shoulders shake. She'd covered her mouth with one hand, but she couldn't hide it. Her emerald eyes were bright, almost liquid, and for the first time since I'd met her, she looked like a woman instead of a corporation.
-"Chopsticks," she managed, when I wandered back over to her. "You played Chopsticks on a Steinway worth four hundred thousand dollars."
-"It seemed underutilized."
-"The last person who touched that piano was a Julliard-trained prodigy. She played Chopin."
-"I also play Chopin. Chopin... the mood. Chopin the vibe. Chopin the—"
-She laughed again, and this time she didn't try to hide it. Several nearby guests turned, their expressions ranging from confused to alarmed. The Ice Queen of the Roseworth empire, giggling at her husband's terrible piano performance in his flamingo shirt and cargo shorts.
-"I don't understand you," she said, and it didn't sound like an insult. It sounded like an admission. "I've been waiting for three weeks for you to do something predictable. To slip up. To ask for something real, something dangerous, something that would tell me what you actually wanted. Instead, you've watched paint dry and played video games and taught my staff to steer a sleeping man in a pool." She shook her head, still smiling. "You're not a spy. You're not a schemer. You're just..."
-"An idiot?" I offered.
-"I was going to say 'genuine.'"
-The word landed somewhere in my chest, unexpected and warm.
-"Everyone here performs," Lilith continued, quieter now, her eyes sweeping the glittering crowd. "Every smile is calculated. Every conversation is a chess move. I've been attending these events since I was fourteen, and I've never—not once—seen anyone play Chopsticks on that piano. Or ask about necklace fatigue. Or eat thirty-seven mini quiches and rank them aloud."
-"Thirty-two. I didn't finish the last plate."
-"You're impossible." But she said it gently. Almost fondly. "And you're not trying to sabotage me, are you? All of this—" She gestured at my shirt, my shorts, my flip-flops. "It's not malicious. You're just... like this."
-"Tragically, yes."
-She was quiet for a moment. Then she reached out and, very deliberately, adjusted the collar of my Hawaiian shirt, which had flipped up during the Chopsticks performance. Her fingers brushed my neck. They were cool, precise, and lingered just a moment longer than necessary.
-"Good," she said. "I think I prefer it this way."
+The gala was held in the Roseworth Grand Ballroom, a structure so enormous I hadn't even noticed it during my initial tour. To be fair, it was positioned at the far end of the estate, separated from the main manor by a quarter-mile of manicured gardens and a hedge maze that I'd been explicitly told not to enter without a tracking device. The ballroom's exterior was classical—columns, pediments, the kind of architecture that made you want to conquer a small nation just to match the aesthetic—but the interior had been transformed. Crystal chandeliers the size of compact cars. Tables draped in white linen. Ice sculptures of what I assumed were mythological figures, though the melting had rendered some of them slightly abstract.
+And people. Hundreds of people. Women in gowns that cost more than a house. Men in tuxedos, glittering with jewellery, moving through the crowd like rare butterflies in a conservatory. The ratio was, as always, staggering—I counted perhaps twenty men in the entire visible crowd, each one surrounded by a constellation of attentive women.
+I stood at the top of the entrance staircase for a moment, surveying the scene. A footman had announced my arrival, but his voice had faltered slightly on the words "Mr. John Roseworth," possibly because he'd gotten a good look at my shirt.
+The room turned.
+I don't mean a few people glanced up. I mean the room *turned*. It was like watching a single organism become aware of an intruder. The hum of conversation dipped, then died, then rose again in a different key—the sound of eight hundred people all whispering some variation of "what is he wearing" at the same time.
+The macaws, I felt, were making their presence known.
+I spotted Lilith across the ballroom, near the centre of the main floor. She was wearing something deep green, almost black, with a necklace that caught the chandelier light and threw it back in a thousand tiny sparks. Her hair was up. Her posture was perfect. She looked, objectively, like the most powerful woman in the room.
+She was also looking directly at me, one eyebrow slightly raised, her expression unreadable.
+I raised my hand and waved. Not a subtle, dignified wave. A full, above-the-head, hey-I'm-over-here wave. The kind of wave you'd give a friend at an airport.
+Half the room followed the gesture and stared at Lilith, waiting for her reaction.
+Lilith didn't react. She simply raised her champagne glass in my direction—the most minimal possible acknowledgment—and took a sip.
+It was, I realised, permission. She wasn't going to shield me. She wasn't going to scold me. She was going to let me walk into this room dressed like a tropical disaster and handle whatever happened next.
+I liked her more every day.
 ---
-The drive home was different.
-We sat in the back of the limousine, the city sliding past in a blur of lights, and for the first time the silence between us wasn't a wall. It was a space. A space where something might grow, if either of us knew how to plant it.
-"The next gala is in three months," Lilith said, not looking at me. "I'm already dreading what you'll wear."
-"I'm thinking a wetsuit. Formal wetsuit. With a bow tie."
-She snorted. Actually snorted. It was such an un-Lilith sound that I turned to stare at her, and she immediately composed herself, but the damage was done. The Ice Queen had snorted.
-"You're terrible," she informed me.
-"I prefer 'creatively noncompliant.'"
-"Terrible," she repeated, but the corner of her mouth was twitching. "Absolutely terrible."
-I leaned back in my seat, the leather soft against my terrible Hawaiian shirt, and watched her profile against the window. The streetlights swept over her face in waves, illuminating the faint smile she was trying so hard to suppress. I'd made her laugh. Not politely, not diplomatically, but genuinely, unexpectedly laugh. And for reasons I didn't fully understand, that felt like more of an accomplishment than anything I'd done in my previous life.
-But even as the warmth of that thought settled over me, something else was stirring. Something colder. Something I'd been trying very hard not to examine.
+I descended the stairs at a leisurely pace, flip-flops slapping against the marble with each step. The sound echoed in the hushed ballroom like a metronome of poor judgment. I made eye contact with strangers as I passed, nodding amiably. Most of them looked away quickly. A few stared openly, their expressions cycling through shock, confusion, and the particular horror of people who had paid thousands of dollars for their outfits and been upstaged by a man in a parrot shirt.
+A waiter passed with a tray of champagne flutes. I snagged one.
+"Thanks," I said. "Love the bow tie. Very crisp."
+The waiter, a young woman who looked like she'd been trained to handle any social situation short of armed robbery, managed a strangled "Thank you, sir" before retreating into the crowd at a pace just short of a run.
+I sipped my champagne—excellent, naturally—and continued my slow, aimless path through the gala. I had no plan. I had no strategy. I was a leaf on the wind, if the wind was wearing cargo shorts and had a mild buzz from expensive alcohol.
+"John."
+I turned. A woman in her sixties, severe and silver-haired, was looking at me with the particular intensity of someone who had Opinions. Her gown was navy, her jewellery was understated but devastating, and her expression suggested she'd just bitten into a lemon and was preparing to file a formal complaint about it.
+"I'm Eleanor Ashworth," she said, as if the name should mean something. "A long-time associate of the Roseworth family. I knew Lilith's mother. I must say, I was curious to meet the young man who managed to... secure a Roseworth contract so quickly."
+"Nice to meet you, Eleanor." I clinked my glass against hers before she could object. "Love the dress. Very... navy."
+Her eyes narrowed. "Do you have any idea what people are saying about you?"
+"I imagine it's something along the lines of 'what is he wearing.' Possibly with an exclamation point."
+"They're saying you're a joke."
+"I am a joke. That's sort of the point. But I'm a joke who signed a legally binding contract, which makes me a very difficult joke to get rid of." I smiled brightly. "Enjoy the gala, Eleanor."
+I walked away before she could respond. The champagne was making me bold, and the macaws were making me invincible.
 ---
-The second month began the way the first had ended: with absolutely nothing to do.
-I'd exhausted the wall-watching. The pool naps had lost their novelty. The gaming room, once a paradise of endless entertainment, now felt like a very comfortable prison. I'd played every game in the library twice. I'd ranked them. I'd written reviews, which I then deleted because the idea of a kept man writing video game reviews was too pathetic even for me.
-I floated in the pool. Sophie and Grace paddled beside me, ever vigilant. But I didn't sleep. I just stared at the ceiling, watching the light ripple across the plaster, feeling my brain slowly, inexorably, begin to consume itself.
-I missed spreadsheets.
-The realization hit me like a physical blow. I, John Roseworth, who had died face-down on a keyboard, who had sworn a blood oath against overtime, who had transmigrated into a world of infinite leisure and zero responsibility—I missed spreadsheets. Not the work. Not the deadlines. But the *doing*. The solving. The small, satisfying click of a formula locking into place.
-I missed making things.
-I rolled over in the water, nearly drowning myself, and Sophie nudged me back to centre with her pool noodle.
-"Sir? Are you alright?"
-"Fine," I said. "Just having an existential crisis. Carry on."
-She did. Of course she did. The staff had never once questioned my sanity.
-I thought about Lilith's question, the one she'd asked that night in the kitchen: *What did you actually want?* I still didn't have an answer. But for the first time, I understood that "nothing" wasn't it. I didn't want nothing. I wanted something. I wanted to build, to design, to solve, to make. But what? What was there to make in a world where everything was already provided?
-The pool water lapped against my ears. The ceiling stretched above me, blank and infinite.
-And then, for reasons I still can't fully explain, I thought about the sea.
-Not the manicured view from the Roseworth estate, not the distant glitter of water through my bedroom window, but the real sea. The open sea. Wind and salt and the creak of timber. I'd never sailed in my life. I'd never even been on a boat bigger than a ferry. But somewhere in the depths of my previous life—in the gray, fluorescent years of spreadsheets and overtime—I'd read about it. Sailing. Navigation. The physics of wind and water. I'd watched videos on my lunch break, stolen moments of vicarious freedom while others hovered at my cubicle wall.
-I sat up so suddenly that Sophie and Grace both yelped.
-"Sir?!"
-"Books," I said. "I need books. Maritime history. Naval architecture. Oceanic exploration. All of it. Where's the library?"
-"I—the east wing library, sir, but—"
-I was already climbing out of the pool, dripping everywhere, my heart hammering with a feeling I hadn't experienced in two lifetimes.
-Purpose.
-I had no idea what I was looking for yet. No plan. No blueprint. Just a hunch, thin and fragile as a soap bubble, floating in the back of my skull.
-But it was something. After a month of nothing, it was finally something.
-I grabbed a towel and ran, barefoot and still in my swim trunks, toward the library, leaving a trail of chlorinated footprints across the marble floor.
-Somewhere behind me, Sophie turned to Grace.
-"Did his eyes just sparkle?"
-"I think they did."
-"That's new."
-"Yeah," Grace said, watching the dripping, half-clothed figure disappear around a corner. "That's definitely new."
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-The east wing library was not, strictly speaking, a library. It was a cathedral that had decided to store books in its spare time. Two storeys of shelves curved around a central reading area, the ceiling painted with constellations that glowed faintly when the lights dimmed. Ladders rolled along brass rails. The air smelled of old paper and the quiet, patient scent of knowledge nobody had touched in decades.
-I dripped chlorinated water onto the marble floor and didn’t care.
-“Maritime history,” I muttered, scanning the sections. My swim trunks were leaving a damp trail behind me, and somewhere a maid was probably already following with a towel, but I was too wired to be embarrassed. “Where would you hide maritime history?”
-The library, like everything in the Roseworth estate, was meticulously organized. I found the transportation section after ten minutes of increasingly frantic searching, my fingers trailing over spines that hadn’t been cracked since before I was born. *The Evolution of Steam.* *Combustion and Commerce.* *Rail, Road, and Sea: A Century of Progress.* I pulled them down in armfuls, stacking them on a reading table, ignoring the water pooling at my feet.
-And then I started reading.
-The story unfolded quickly. In this world, the steam engine had arrived early—decades earlier than in my old life, if the dates lined up the way I thought they did. Internal combustion had followed hard on its heels. The result was a maritime history that had skipped an entire branch of development. Steam-powered vessels had replaced sail the moment it became practical, and the age of wind-powered exploration had ended not with a whimper but with a decisive, industrial bang.
-I found a single chapter on traditional sailing ships, buried in a thick volume titled *Obsolete Technologies of the Pre-Modern Era*. The language was dry, academic, faintly dismissive. Sailing ships were described as “pre-steam transitional vessels,” maintained today only by “small historical preservation societies” who built replicas of ancient galleons and schooners for museum displays. There was nothing about modern sailboats. Nothing about sloops or ketches or catamarans. Nothing about the physics of foil shapes or the elegance of a Bermuda rig.
-The entire concept of recreational sailing—the sport, the art, the lifestyle—simply didn’t exist.
-I closed the book and stared at the ceiling.
-In my old life—my real life, before the transmigration, before the overwork and the keyboard and the dying—I’d had a hobby. Just one. When the spreadsheets blurred and Dave’s voice faded into white noise, I’d read about boats. I’d watched videos of regattas on my lunch break. I’d studied hull shapes and keel designs, learned the vocabulary of masts and booms and running rigging, memorized the physics of lift and drag as they applied to a well-trimmed sail. It had been my escape, the one thing that made me feel like I was more than a corporate drone with bad posture.
-I’d never sailed. Never been on anything fancier than a ferry. But I knew the theory. I knew the designs. And if my memory was reliable—if those hours of obsessive reading had really stuck—I might know enough to recreate them.
-A lightbulb went off in my head. Not a subtle, gentle glow. A full-on stadium floodlight.
-This world didn’t have modern sailboats. But I did.
+I found myself near the edge of the ballroom, by a cluster of ornate pillars that framed a small seating area. And there, arranged on velvet couches like a display of particularly well-dressed houseplants, was a group of men.
+There were six of them. All young, all beautiful in the way that generations of careful breeding and unlimited skincare budgets could produce. They wore tuxedos that fit like they'd been sewn directly onto their bodies. They wore watches that cost more than my previous life's annual salary. They wore rings on multiple fingers and, in one case, what appeared to be a diamond-encrusted lapel pin in the shape of a family crest.
+They were, I realised, the other husbands. The kept men. The male elite of this bizarre world.
+And they were staring at me.
+"Gentlemen," I said, dropping onto an empty couch across from them. I didn't so much sit as sprawl—legs wide, arms draped across the backrest, champagne glass balanced on my knee. "Lovely party. Great ice sculptures. I think that one's melting into a horse, which is either intentional or a cry for help."
+They didn't laugh. They exchanged glances. The kind of glances that said *we have found an intruder and must determine whether to eat him or flee*.
+"You're the Roseworth acquisition," one of them said. He was blond, square-jawed, with the kind of symmetrical features that belonged on a magazine cover. His voice was carefully neutral. "The one who negotiated the million-dollar marriage price."
+"That's me. John Roseworth. Formerly John Doe. The name's a downgrade, honestly—my old one was way more memorable."
+"Doe," another man murmured. He was darker, leaner, with the watchful eyes of someone who'd learned to navigate shark-infested social waters. "I don't recognise the family."
+"You wouldn't. We're not a family. We're just... people. Regular people. My great-grandmother had three cows, and we considered that a flex."
+The blond one leaned forward, his expression sharpening. "What's your net worth?"
+"Excuse me?"
+"Your personal assets. Your portfolio. Your controlled wealth. What number are you working with?"
+I took a sip of champagne. The question was so perfectly, absurdly in keeping with this world's values that I almost laughed. Here, in this glittering room full of powerful women, the men measured themselves not by what they did but by what they owned. Or rather, what their wives allowed them to own.
+"Nothing," I said.
+The blond blinked. "Nothing?"
+"Less than nothing, probably. I have no assets. No portfolio. No controlled wealth. I don't even have a bank account. I own approximately forty-seven Hawaiian shirts, but most of those were paid for by the household. Actually, I don't own those either—I just wear them. The concept of personal property is very blurry for me these days."
+The silence that followed was the silence of six men simultaneously realising they were speaking to a creature from another dimension.
+"I do have a shopping cart," I added. "Well, technically it's in the kitchens now. But it was mine for a while. I rode in it."
+The lean one recovered first. "You're joking."
+"I'm always joking. But also, I'm not. I came into this marriage with nothing, I asked for everything, and I got it. I don't manage money. I don't think about money. I don't even know how much a loaf of bread costs in this economy."
+"Then what do you *do*?" This from a third man, younger, with a voice that cracked slightly on the question.
+I considered the question. What did I do? I floated on lakes. I shot arrows. I commissioned paintings of flamingos. I demanded dinosaur pancakes and befriended koi fish. I did whatever I wanted, whenever I wanted, and the world adjusted around me.
+"Nothing," I said, and I had never been prouder of a single word in my life. "I do absolutely nothing. It's the best job I've ever had."
+The men stared at me. Their expressions were a symphony of bewilderment. The blond one looked actively distressed. The lean one was doing rapid mental calculations that kept failing to produce a result. The young one just looked lost, like he'd been handed a puzzle with no pieces.
+"But... the gala," the blond managed. "Your wife. The Roseworth reputation—she allowed you to attend like *this*?"
+"Allowed?" I laughed. "She doesn't allow me to do anything. That's the whole point. I told her I wasn't wearing a suit, and she said fine. I told her I wasn't going to work, and she said fine. I told her I wanted a million dollars and a car and a house, and she said *fine*. Do you know why?"
+No one answered.
+"Because I don't want anything else. I'm not a threat. I'm not a schemer. I'm not going to wake up one day and try to take over her company or leverage her connections or whatever it is you all apparently spend your time doing." I waved my champagne glass at their jewellery. "Look at you. You're all dripping in assets. And you're terrified. I can see it. You're terrified of losing what you have. You're terrified of each other. You're probably terrified of your wives. I'm not terrified of anything. I have nothing to lose. I already lost everything, and then I got it back better."
+I stood up. The conversation had become heavier than I'd intended, and the champagne was making me philosophical. Also, I'd spotted a dessert table across the ballroom, and the siren call of miniature pastries was becoming impossible to ignore.
+"Enjoy the gala, gentlemen," I said. "If you need me, I'll be the one in the parrot shirt eating all the chocolate éclairs."
+I walked away, and behind me, I heard the low murmur of voices rising in confusion. I caught fragments—"absolutely insane" and "no assets" and "did he say three cows?"—but I didn't turn around. I was too busy being searingly, gloriously proud.
+I had, I realised, done something those men couldn't comprehend. I had opted out. Completely and utterly. And in doing so, I had become something more terrifying than a wealthy man. I had become a free one.
 ---
-The first day, I didn’t leave my room.
-I’d requested supplies from Mrs. Hardwick at dawn—pens, pencils, rulers, compasses, and “all the paper you have.” She’d raised an eyebrow, which from her was equivalent to a normal person screaming *what on earth*, but she’d complied. By midmorning, my sitting room desk was buried under a drift of blank sheets.
-I started with sketches. Rough, ugly, barely coherent sketches that looked like a child’s attempt to draw a sea monster. But slowly, as my hand remembered shapes I hadn’t thought about in two lifetimes, the lines began to make sense. A hull. A keel. The curve of a bow.
-I worked through lunch. The food cart came and went; I didn’t notice. I worked through dinner. The sun set, the room darkened, and I turned on every light and kept going. My back ached. My hand cramped. I didn’t care. For the first time since I’d died and woken up in this absurd world, I was *doing* something. Making something. Not because anyone had told me to, not because a contract required it, but because my brain had caught fire and the only way to put it out was to burn through every idea I had.
-The second day was worse.
-I stopped sleeping. Or rather, I slept in strange, sporadic bursts, face-down on my desk, then jerked awake with a new idea and lunged for a pencil. The sketches multiplied. The floor disappeared under a carpet of paper. I pinned sheets to the walls, the furniture, the bedposts. I drew cross-sections and deck plans. I calculated lengths and displacements, using math I half-remembered from articles I’d read years ago. I designed a sail plan, then scrapped it, then designed another.
-The staff tried to intervene. Mrs. Hardwick appeared at my door three times, her expression migrating from professional concern to genuine alarm. “Sir, you haven’t eaten in fourteen hours.” “Sir, the chef has prepared your favourite—quail eggs on Johnson’s first edition.” “Sir, should I send for a doctor?”
-I waved her off every time. “Fine. I’m fine. Leave the tray.”
-The tray sat untouched. I had more important things to do than eat.
-On the third day, I realized my sketches were actually good. Not professional—I wasn’t a naval architect, and my drawings had the rough, hand-done quality of someone who’d learned from YouTube tutorials and late-night Wikipedia spirals. But they were coherent. The hull shape was modern, a sleek displacement design with a plumb bow and a wide stern. The twin keels—a feature I’d loved in my old life for their stability and shallow draft—were drawn to scale. The mast heights, the sail areas, the basic weight distribution: all accounted for, at least in theory.
-I stepped back from the wall I’d commandeered as my main canvas and looked at what I’d made.
-It was a boat. A real, honest-to-God sailing yacht, forty-two metres long, two masts, a schooner rig that balanced performance with ease of handling. A garage for a jet ski and a dinghy tucked under the aft deck. A dive platform. Storage for spear-fishing gear. Cabins for a crew of servants plus owners. A shallow draft that could navigate the kind of island chains I’d seen on maps of this world, scattered like emeralds across a turquoise sea.
-I had no idea if it would work. I had no idea if the physics were right. But it was *something*. Something that hadn’t existed in this world until three days ago.
-I sat down heavily on the edge of my bed, surrounded by paper, and laughed. A hoarse, exhausted, slightly unhinged laugh that echoed off the walls.
-Then I realized I was starving, and also that I hadn’t showered in two days, and also that my swim trunks had dried into a stiff, salty mess that I was still somehow wearing.
-I stumbled to the bathroom, ran the hottest water I could stand, and didn’t emerge for an hour.
+The dessert table was everything I'd hoped for and more. I loaded a plate with éclairs, tiny fruit tarts, and something chocolate that appeared to be trembling slightly, which I took as a sign of quality. I was on my third éclair when a presence materialised at my elbow.
+"Having fun?"
+I turned. Lilith stood beside me, champagne glass in hand, her expression caught somewhere between amusement and genuine curiosity.
+"Immensely," I said, around a mouthful of pastry. "I just had a very confusing conversation with six men who looked at me like I'd grown a second head. One of them asked my net worth. I told him I didn't have one. I think I broke his brain."
+"Probably. That's Victor Ashworth the Third. His family controls the largest textile import business on the eastern seaboard. He's been raised to believe that a man's value is measured entirely in controlled assets."
+"Well, by that metric, I'm worthless. Which is fine. Worthless things can't be leveraged."
+Lilith was quiet for a moment. She picked up one of the trembling chocolate things and examined it.
+"You know," she said, "I watched that entire conversation. You handled it better than most men with ten times your supposed value."
+"I handled it by telling the truth. Turns out that's surprisingly effective when everyone around you is lying."
+"Is that your secret? Honesty?"
+"My secret is that I don't have secrets." I finished my éclair and reached for a fruit tart. "I'm exactly what I look like. A man in a parrot shirt who wants to eat desserts and go home. Zero layers. Zero schemes. I'm the most boring conspiracy theory in the world."
+Lilith's lips curved. It wasn't a full smile, but it was close. "You're many things, John. Boring isn't one of them."
+"Was that a compliment?"
+"An observation." She took a bite of the chocolate thing. Her eyes widened slightly. "This is actually quite good."
+"I know. I've had four."
+She didn't scold me. She didn't remind me of social graces or the importance of moderation or the eight hundred pairs of eyes that were probably still tracking my every move. She just stood there, eating a chocolate dessert, wearing a gown that cost more than a car, sharing a moment of quiet absurdity with her accidental husband.
+And I thought, not for the first time and not for the last: *This could work. This strange, ridiculous, impossible arrangement might actually work.*
+"Next time," Lilith said, "perhaps a shirt with slightly smaller birds."
+"The macaws are a statement."
+"The statement is very loud."
+"Statements usually are."
+She shook her head, but the smile was definitely there now. She took her champagne and drifted back into the crowd, leaving me alone with the dessert table and the lingering sense that something was shifting between us. Something I couldn't quite name.
+I ate another éclair and tried not to think about it too hard.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+I spent the next hour eating my body weight in miniature pastries and watching the gala unfold around me like a particularly well-dressed nature documentary. The women networked. The men posed. The ice sculptures continued their slow, dignified melt into abstraction. I'd parked myself on a velvet bench near the grand piano, a magnificent black concert instrument that nobody was playing, which seemed like a waste of a perfectly good piano.
+By my seventh éclair, I was deeply, profoundly bored.
+The trouble with being a kept man, I was discovering, was that social events designed for kept men assumed you wanted to talk about being kept. Net worth. Assets. Controlled wealth. The same conversation I'd already had with the six bejewelled husbands, rotating on an endless loop. I didn't have the energy for another round of explaining that I was, financially speaking, a ghost.
+My eyes drifted to the piano again. It sat there, glossy and silent, like a monument to unused potential.
+*I should learn piano*, I thought.
+The impulse arrived fully formed, bypassing the normal channels of reason and consequence. I'd never touched a piano in either life. I couldn't read music. I didn't know middle C from the middle of the Atlantic. But in that moment, looking at those black-and-white keys gleaming under the chandeliers, I wanted to play it more than I'd ever wanted anything.
+I spotted a maid passing with a tray of empty glasses, heading toward the service corridor. She was young, probably nineteen, with a face that had the slightly haunted look of someone who'd been working gala duty for six hours and counting.
+"You," I said, standing up. "What's your name?"
+She froze. A tray of empty glasses was suddenly the most dangerous object in the room. "Um—Clara, sir. Did I—is something wrong?"
+"Nothing's wrong. Can you play piano?"
+"Piano?" She blinked rapidly. "I—yes. A little. My grandmother taught me when I was—"
+"Perfect. Teach me."
+The glasses rattled. "Sir?"
+I gestured grandly at the piano. "Teach me to play. Right now. I've decided I want to learn piano, and you're conveniently here, and you have piano knowledge, and I have enthusiasm. Between the two of us, I think we can make something happen."
+Clara looked around the ballroom, possibly searching for an escape route or a hidden camera crew. "But—the gala, sir. I'm working. And these are very important people—"
+"They've been important for hours. They can be important without you for ten minutes." I was already walking toward the piano, flip-flops slapping with purpose. "Come on. I'm an excellent student. I once learned archery in three days. I peaked immediately and quit forever, but those three days were magnificent."
+Clara, to her immense credit, followed. She set her tray on a nearby table—glasses still rattling, though now from the tremors of someone who had accepted her fate—and joined me on the piano bench.
+The room was beginning to notice. Heads turned. Whispers rippled outward like stones dropped in a pond. I was dimly aware of the attention, but I'd become strangely immune to it over the course of the evening. Let them stare. Let them whisper. They'd been doing it all night, and I was still standing. In flip-flops.
+"Okay," I said, flexing my fingers. "Where do we start?"
+"I'm not—I don't really know how to teach, sir. I just know how to play."
+"Then play something. Something simple. Something a man with zero musical talent and seven éclairs in his system can comprehend."
+Clara looked at the keys. She looked at the crowd. She looked at me, and something in my expression—the sincerity, probably, which was always the most disorienting part—seemed to steady her.
+She placed her fingers on the keys and played a chord. Simple. Clean. The sound bloomed into the ballroom like a flower opening.
+"Like that," she said, her voice steadier now. "Just... like that."
+I placed my fingers where hers had been and pressed. The same keys. The same positions. What emerged was not a chord. It was more of a thud. A musical shrug. The kind of sound a piano makes when it's being asked a question it doesn't want to answer.
+"That was terrible," I said, delighted.
+"It wasn't—" Clara paused, visibly recalibrating her definition of success. "Your wrist was a bit stiff."
+"Of course it was. Wrists are naturally suspicious of new activities. Show me again."
+She did. I tried again. Another thud, but this one had a slightly different quality—less confused, more contemplative. Clara nodded. "Better."
+"You're lying, but I appreciate the encouragement."
+"I'm not lying. The second one was better. You can hear the difference."
+I could, actually. Just barely. The second attempt had been less of an assault on the concept of harmony and more of a gentle disagreement.
+"Alright," I said, genuinely excited now. "What's next?"
+Clara, who had clearly decided that this was her life now, began walking me through a simple scale. I butchered it. She corrected my fingering. I butchered it again, but with slightly more finesse. A small crowd had gathered at the edges of our impromptu lesson—women in silks and jewels, men in their diamond pins, all watching a Roseworth husband take his first piano lesson from a gala maid while wearing a macaw shirt.
+The whispers had changed tone. They weren't scandalised anymore. They were confused. Intrigued. One woman near the front was actually craning her neck to watch Clara's hand positions.
+"Now try putting the chords together," Clara said, fully in teacher mode now. "C major, then G major, then back to C."
+I did. What emerged was not music, exactly, but it was something. A sequence. A pattern. Three chords in a row without any of the keys sticking or my fingers giving up entirely.
+"I did it," I said, staring at my hands. "I just did a music."
+"You did a music," Clara agreed, and I think she was actually smiling.
+I turned to the small crowd that had gathered. "Ladies and gentlemen, I have successfully played three chords in sequence. Please hold your applause. Actually, don't. Applaud wildly. This is the peak of my musical career."
+A few people actually clapped. Most of them looked like they weren't sure why. One of the bejewelled husbands from earlier—the lean one—was staring at me with an expression that had moved beyond bewilderment into something approaching philosophical crisis.
+I looked up, scanning the balconies, and finally found what I'd been searching for without realising it.
+Lilith stood on the upper gallery, one elbow resting on the balustrade, her champagne glass cradled loosely in her fingers. And she was laughing. Not the controlled, private laugh I'd heard from the window after the lake incident. This was open. Genuine. Her shoulders were shaking, and she had one hand pressed to her mouth, and her eyes—even from this distance—were bright with something that looked a lot like joy.
+She'd been watching the whole thing. The piano lesson. The terrible chords. The maid who'd become an accidental music teacher. Her husband, dressed like a tropical refugee, sincerely and earnestly trying to learn something new in the middle of the most prestigious social event of the year.
+I raised my hand and waved. The same ridiculous wave I'd given her at the entrance.
+She raised her champagne glass back at me, still laughing, and I saw her mouth form a word that looked a lot like *impossible*.
+I turned back to Clara. "Alright. What's a fourth chord? I want to play something that has four chords. That's one more than three. That's growth."
+The lesson continued for another twenty minutes. By the end, I could play a halting, clumsy version of "Twinkle Twinkle Little Star" that a tone-deaf toddler would have recognised, and Clara had become, briefly, the most famous maid at the Roseworth Gala. Several guests asked for her name. One offered her a job as a private piano tutor, which she politely declined on the grounds that she "preferred to work for the Roseworths."
+I understood the sentiment entirely.
 ---
-The staff must have reported me, because when I finally emerged—clean, dressed, still vibrating with a strange, manic energy—the atmosphere in the east wing had shifted. Maids who normally moved with serene efficiency now paused when they saw me. Conversations died when I entered a corridor. I caught Sophie and Grace exchanging looks near the pool, looks that said *he’s doing it again, whatever it is*.
-I didn’t care. I had a boat to design.
-The problem was paper. Specifically, the fact that I’d used all of it. Every sheet in the east wing, every roll of drafting paper Mrs. Hardwick had scrounged, every notebook I’d found in my desk. I needed more. And the only place to get more, at two in the morning, was the main house’s supply room.
-I waited until the hallways were dark and silent, then crept out of my room carrying a cardboard box I’d emptied of its original contents (a gift basket of artisanal cheeses; this household was absurd). The box was full of my used sketches—the bad ones, the false starts, the designs I’d rejected—which I planned to recycle by drawing on the backs. It was bulky and awkward and, from the outside, looked exactly like I was smuggling something suspicious.
-I made it to the supply room, filled the box with fresh paper and a handful of high-quality drafting pens, and crept back. No one saw me. Or so I thought.
-What I didn’t know, and wouldn’t learn for another day, was that the hallway cameras—the discreet, high-resolution, nothing-escapes-them cameras that covered every corridor in the mansion—had caught the whole thing. A dark figure, moving furtively in the night, carrying a concealed box. Looking guilty. Looking like a man with something to hide.
-And in a world where wealthy husbands often kept mistresses on the side, the Roseworth security team knew exactly what that looked like.
+The gala ended at midnight. At 12:07 AM, I was slumped in the back of the Roseworth limousine, my feet—flip-flops discarded on the floor—propped up on the opposite seat. Lilith sat across from me, impossibly elegant despite the late hour, her heels kicked off and her necklace slightly askew. The privacy divider was up. The driver was silent. The night beyond the tinted windows was dark and quiet.
+We rode in comfortable silence for the first few minutes. I was tired in a way that felt earned—the good kind of exhaustion, the kind that came from doing exactly what you wanted for hours and letting the consequences sort themselves out.
+"So," Lilith said eventually, breaking the silence. "You learned piano tonight."
+"I learned three chords and a children's song. I've forgotten them already."
+"You were the only person in that room who did anything interesting."
+"I was the only person in that room who wasn't terrified of doing something wrong. That's different from being interesting."
+"It's not, actually." She leaned her head back against the leather seat. Her eyes were half-closed, and her expression was softer than I'd ever seen it. "Do you know what people will be talking about tomorrow? Not the Ashworth merger. Not the trade negotiations. They'll be talking about the Roseworth husband who took a piano lesson from a maid and played 'Twinkle Twinkle Little Star' in front of eight hundred dignitaries."
+"I played it badly."
+"You played it sincerely." She opened one eye. "There were men there who have spent years cultivating their images. Polished, rehearsed, strategised. You showed up in a shirt covered in birds and did whatever occurred to you. And by the end of the night, everyone was watching you instead of them."
+"They were watching because they thought I was insane."
+"Maybe. But they also wished they could do what you did. Just once. Just for an evening." She paused. "Were you performing?"
+I turned my head to look at her. "What do you mean?"
+"The piano lesson. The wave at the entrance. The conversation with the husbands. Was it a performance? A calculated act to disarm or distract?"
+I considered the question. It was a fair one, coming from her. Everything in her world was calculated. Every gesture, every word, every carefully chosen outfit. The idea that someone might simply do things without strategy was genuinely foreign.
+"No," I said. "It wasn't a performance. That's just... me. Impulsive. Easily bored. Genuinely interested in random things for random amounts of time. I wasn't trying to disarm anyone. I just wanted to learn piano for twenty minutes, and Clara was there, and now I've learned piano for twenty minutes."
+"That's not normal."
+"I'm aware."
+"It's also not normal to float out to the middle of a lake on an inflatable flamingo and fall asleep."
+"That was an accident."
+"Was it?"
+I laughed. "Yes. I'm not some social genius running a long con. I'm just a man who decided he was done pretending to be something he's not. I did enough pretending in my—" I caught myself. "In my imaginary past life. The office drone. Remember him?"
+"The one who died of overwork."
+"That's the one. He spent his whole life performing. Performing competence. Performing dedication. Performing the role of a good employee who cared about spreadsheets. And what did it get him? A heart attack at twenty-nine and a funeral nobody attended."
+Lilith was quiet.
+"So when I got here," I continued, "this world, this life—I decided I was done. No more performing. No more strategising. I do what I want, when I want, and if people think I'm insane, that's their problem. It's not a tactic. It's not a scheme. It's just... honesty."
+Silence settled over the limousine. Outside, the gates to the estate swung open, and we glided through the darkness toward the manor.
+"You're the most authentic person I've ever met," Lilith said quietly.
+I looked at her. She was staring at me now, both eyes open, her expression unguarded in a way I'd never seen before.
+"Most people," she continued, "spend their entire lives pretending. I spend my entire life watching them pretend. I've built a career on being able to spot the lie, the angle, the hidden agenda. And then you arrived, and you said you wanted to be useless, and you've been exactly that. Thoroughly. Creatively. Genuinely useless."
+"I'm not sure if that's a compliment."
+"It is." She smiled, small and real. "It's the highest compliment I know how to give."
+The limousine pulled up to the east wing entrance. My entrance. The door opened automatically, and the cool night air rushed in.
+"Goodnight, Lilith," I said, gathering my flip-flops and stepping out.
+"Goodnight, John."
+I was halfway to the door when she called after me. "John?"
+I turned.
+"Thank you for not wearing the suit."
+I grinned. "The macaws send their regards."
+She laughed again—that same open, genuine laugh from the balcony—and the limousine door closed between us.
+As I walked into the east wing, past the accent walls that still looked like a tropical sunset had vomited across the hallway, past the portrait of me riding the inflatable flamingo, past the snack table with the suit-tablecloth, I felt something settle in my chest. Not quite an emotion. More like the absence of one. The absence of the tension I'd carried through my entire previous life. The constant, exhausting effort of being someone I wasn't.
+I kicked off my flip-flops and collapsed onto my cloud-sized bed. The painted cherubs stared down at me with their eternal, gilded disinterest.
+"Authentic," I said aloud. "She called me authentic."
+The cherubs offered no opinion. But I fell asleep smiling anyway.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Four months into my life as John Roseworth, I had developed a complex and deeply personal relationship with the manor's architecture.
+The east wing was my domain—a kingdom of inflatable slides, half-finished hobby projects, and accent walls that continued to startle guests. The kitchens knew my breakfast preferences so intimately that I no longer had to specify "triceratops" for the pancakes; they simply intuited the dinosaur of the day. The lake remained my sanctuary, though I now napped with a tracking device clipped to my shorts, a compromise Mrs. Hardwick had negotiated with the quiet intensity of a hostage mediator.
+But it was the roof that had become my secret.
+The east wing had a particular section of roofing that was accessible through a third-floor window, a dormer that opened onto a gentle slope of slate tiles. The angle was shallow enough to sit on, and the position was perfect—sheltered from the wind, hidden from the grounds below, and angled directly toward the afternoon sun. I'd discovered it three weeks into my stay, and it had become my go-to spot for serious thinking, which mostly meant sprawled-out napping with occasional existential pondering.
+On this particular October afternoon, I was stretched across the sun-warmed tiles like a lizard with a Hawaiian shirt collection. The autumn air had that crisp, golden quality that made everything feel slightly nostalgic, and the leaves on the estate's countless trees were beginning their slow, dignified transition from green to amber. My current outfit—a shirt covered in neon orange starfish—blended almost tastefully with the season.
+I was thinking about nothing. Absolutely, blissfully nothing. The kind of nothing that only people with zero responsibilities can achieve. My eyes were closed. My hands were folded behind my head. The sun was painting red patterns on the inside of my eyelids.
+And then, entirely unbidden, a memory surfaced.
+*Salt spray. The snap of canvas. The creak of a wooden hull cutting through waves. The way the world went quiet when the engine died and only the wind remained.*
+I opened my eyes. The blue autumn sky stretched above me, cloudless and vast, and suddenly I wasn't seeing it. I was seeing the ocean. I was feeling the deck of a sailboat beneath my feet, the wheel in my hands, the particular kind of freedom that only came when you were powered by nothing but wind and stubbornness.
+Sailing.
+I'd been a sailor in my past life. Not professionally—I'd never had the time or money for that—but obsessively. Weekends. Holidays. Every stolen moment when the office wasn't consuming my soul. I'd saved for years to buy a modest daysailer, a twenty-two-footer that I'd kept at a marina an hour from the city. I'd named her *Escape Plan*, because that's what she was. My fantasy. My retirement dream that would never come. I'd died before I could take her on a proper voyage.
+And now, lying on a roof in a world that wasn't mine, the memory of it hit me like a wave.
+I want to go sailing. No. I want to go sailing. More than I've wanted anything since arriving here. More than archery. More than piano. More than dinosaur pancakes. This wasn't an impulse. This was a calling.
+I sat up so fast I nearly slid off the roof. "Tablet! I need a tablet! Someone bring me a tablet!"
+There was a pause—the brief, professional pause of staff processing an unexpected demand—and then a voice from somewhere below: "Right away, sir!"
+Thirty seconds later, a maid appeared at the dormer window, slightly out of breath, holding a sleek tablet computer with both hands like it was a holy relic. I recognised her vaguely—one of the younger staff, efficient, name temporarily lost in my excitement.
+"You're amazing. Thank you. I'm naming a boat after you."
+"Sir?"
+"Which boat? Not sure yet. But one of them. Possibly the whole fleet."
+I grabbed the tablet and began searching before she'd even retreated. The interface was familiar enough—technology here was weirdly parallel to my old world, the same basic functions with different icons—and I threw myself into research with the intensity of a man who had just remembered his life's purpose.
+Sailing. Sailboats. Sailing clubs. Yacht manufacturers. Marina listings. I searched them all, my fingers flying across the screen, my brain already twenty miles offshore.
+The results were... confusing.
+I searched again. Different terms. Broader. More specific. Historical. I checked encyclopedias. Maritime databases. I even found what passed for a recreational boating forum, which was mostly discussion of motor yachts and fishing vessels.
+Nothing. There was nothing.
+Leisure sailing had never developed in this world. I pieced together the story over the next hour: with the early advent of reliable combustion engines, and the particular historical circumstances that had prioritised speed and efficiency over recreation, sailing as a hobby had simply never emerged. The principles existed—commercial shipping had used sail for centuries before engines took over—but the idea of doing it for fun? For sport? For the sheer, pointless joy of harnessing the wind and going nowhere in particular?
+It didn't exist.
+I sat on the roof, tablet in my lap, staring at the distant shimmer of the sea beyond the estate. The ocean was right there. The wind was right there. And no one in this entire world had ever thought to put them together for the hell of it.
+"Okay," I said aloud. "Okay. New plan. If it doesn't exist, I'll build it."
+The dormer window creaked. The maid was still there, hovering uncertainly. "Will there be anything else, sir?"
+"Yes. I need paper. Lots of paper. The big kind, with the grid. And pencils. Mechanical pencils. And a ruler. A long one. And erasers. Probably lots of erasers."
+"To the design studio, sir?"
+I blinked. "What design studio?"
+"The one you had us set up in the east gallery two weeks ago. For the mural project. Before you decided the mural would be better as a sculpture."
+I had no memory of this. "Did we finish the sculpture?"
+"No, sir. You decided sculpture was 'too three-dimensional' and moved on to competitive cheese-rolling."
+"Right. The cheese wheel. That exploded."
+"The first one, yes. The second one was more successful."
+"Use the studio," I said, already scrambling through the window, tablet clutched to my chest. "Clear the tables. Get me the supplies. And coffee. A lot of coffee. This is not a drill."
 ---
-I gathered my papers—the best ones, the cleaned-up plans, the final(ish) design I’d been working on when the paper ran out—and rolled them into a tube. My heart was pounding, but not from fear. I was nervous, yes, but also excited. I’d been working on this in secret for days, and now I finally had something to show. Something real. Something that might make Lilith look at me the way she’d looked at me after the gala, with that half-smile of surprised approval.
-I didn’t know, as I walked toward the main study, that I was walking into an ambush.
-The door was heavy oak, carved with roses—of course—and slightly ajar. I pushed it open and stepped inside.
-Five women stood around Lilith’s desk. Lilith herself sat behind it, her posture rigid, her face a mask of cold, controlled fury. The head of security—a woman I’d glimpsed in hallways, broad-shouldered and stern—stood at her right hand. Three other security officers flanked the desk. On the table in front of them, I saw documents spread out. Surveillance stills. A map of the east wing.
-They were planning something. A raid, by the look of it. And from the way they all turned to stare at me when I entered—four expressions of professional suspicion, one expression of icy, barely-contained anger—I was the target.
-My stomach dropped.
-“John,” Lilith said, and her voice was winter. “What an unexpected visit.”
-I clutched the rolled-up plans to my chest like a shield. “I, uh. I wanted to present something. To you. If you have a moment.” I glanced at the security team, then back at Lilith, whose green eyes were doing a very good impression of frozen lakes. “I know you’re busy. It won’t take long. Just—please keep an open mind. And don’t judge too quickly.”
-Lilith’s jaw tightened. I saw her hand curl into a fist on the desk. She was braced for something awful, I realized. Something terrible. She thought I was about to confess to something unforgivable.
-“Go on,” she said, her tone clipped. “Present.”
-I swallowed hard. This was not the receptive audience I’d hoped for. But I’d come this far. The plans were in my hand. And honestly, what did I have to lose? If she hated it, she hated it. I was already a kept man with no dignity to spare.
-I stepped forward, unrolled the first blueprint across her desk, and kept my eyes fixed firmly on the paper. I couldn’t look at her face. That cold anger was too much. It reminded me of every boss who’d ever called me into an office for a “quick chat” that ended in unpaid overtime.
-“So,” I began, my voice wavering, “I’ve been working on something. A design. It’s a boat. A sailing yacht, specifically. Forty-two metres, twin keels, two masts.” I traced the lines with a shaking finger. “The hull form is a modern displacement design—high stability, low drag. The twin keels give it a shallow draft, which means it can navigate inshore waters and island chains that deeper vessels can’t reach. I’ve been reading about the geography around the Roseworth holdings, and there’s an archipelago about two hundred miles offshore that looks ideal for—”
-I was rambling. I could hear myself rambling. But I couldn’t stop. The words were coming faster now, my confidence building as I slipped into the familiar rhythm of explaining something I actually understood.
-“The rig is a fractional schooner. Two masts, self-tacking jib, all lines led to electric winches so the whole thing can be handled by a small crew or even single-handed in a pinch. The aft section includes a garage for a jet ski and a rigid inflatable dinghy, plus a dive platform with integrated tank storage. There’s space for spear-fishing gear. The interior layout is designed for owners plus up to eight staff, with a galley, a saloon, and private cabins that don’t feel like coffins—”
-My finger moved across the plans, pointing out details. The bow thruster for docking. The water-maker for long passages. The solar array integrated into the coachroof. The twin rudders for redundancy. I talked for ten minutes. Then twenty. Then thirty. I didn’t look up. I couldn’t. If I looked up and saw that icy glare, I’d lose my nerve entirely. So I kept my head down, my eyes on the paper, and I talked about the boat I’d built in my head, the boat that had consumed me for four days and nights, the boat that I’d poured every scrap of knowledge and obsession and desperate, pent-up creativity into.
-I finished with the construction estimate. My voice dropped. This was the part I’d been dreading.
-“The only thing I haven’t ironed out is cost,” I admitted, my throat dry. “Based on the materials—marine-grade aluminium for the hull, carbon fibre for the spars, the electronics, the systems—I think… I think it’ll run about a hundred and fifty million. To build. Plus testing.” I swallowed so hard I was sure they could hear it. “I know that’s a lot. I know I don’t earn money—the contract even says I can’t. But I was hoping you might…” My voice trailed into a whisper. “Fund it.”
-I finally dared to look up.
-Lilith was staring at me. Her mouth was slightly open. Her security team—all five of them—were staring too, their expressions frozen somewhere between shock and confusion.
-Then one of them laughed.
-It was the woman on the far left, a stocky officer with a close-cropped haircut. She snorted, tried to stifle it, and failed. The sound was like a match dropped into gasoline. Two others joined her—the tall woman beside her and a younger officer who’d been standing near the back. Their laughter filled the room, sharp and incredulous, the kind of laughter reserved for people who’ve just heard something so absurd they can’t process it any other way.
-I didn’t process it either. Not rationally. I saw their faces—the smirks, the shaking heads, the barely-disguised disbelief—and my brain translated it into the worst possible meaning.
-They were laughing at me.
-The kept man. The joke-husband. The lazy, useless ornament who’d spent a month watching paint dry and floating in a pool and now thought he could design a boat. A boat that didn’t exist. A boat he wanted a hundred and fifty million dollars for. Of course they were laughing. It was laughable. I was laughable.
-The heat rushed to my face. My vision blurred. I didn’t wait to hear what Lilith would say. I grabbed my plans off the desk, crumpling the edges in my haste, and bolted for the door.
-I ran.
-I ran through corridors I didn’t see, past staff I didn’t acknowledge, my flip-flops slapping against marble, my chest heaving, my eyes stinging with something I refused to identify. I reached the east wing, flung open my door, and hurled myself onto my bed. The plans scattered around me like fallen leaves. I pulled a blanket over my head and curled into a ball and wished, with every fibre of my being, that the mattress would open up and swallow me whole.
-Stupid. Stupid, stupid, stupid. What had I been thinking? I wasn’t a designer. I wasn’t an engineer. I was a former corporate drone who’d read too many sailing magazines and watched too many videos and who had, in a fit of boredom-fueled madness, convinced himself he had something to offer. And now Lilith knew. Now the staff knew. Now everyone knew exactly what a pathetic, delusional leech I really was.
-The blanket was dark and warm and smelled faintly of laundry detergent. I pulled it tighter and tried to stop existing.
----
-I didn’t hear the door open. I didn’t hear the soft footsteps cross the room. What I heard, eventually, was the gentle creak of the mattress as someone sat down on the edge of my bed.
-“John.”
-Lilith’s voice. Quiet. Not winter anymore. Something else entirely.
-I didn’t move. The blanket was my fortress. Fortresses didn’t have to face reality.
-“John, look at me.”
-I shook my head under the blanket. A very mature response.
-She sighed. Then, to my absolute shock, she chuckled. A warm, breathy sound, full of relief and something that might have been affection.
-“I just walked through your room,” she said. “Your entire room, John. There are drawings on every surface. Hundreds of them. On the floor, on the walls, on the desk—I think there’s one taped to the ceiling. When did you even reach the ceiling?”
-“…stood on a chair,” I mumbled into the mattress.
-“Of course you did.” She paused. “The three women who laughed will be reprimanded tomorrow. Their behaviour was unprofessional and insulting. I apologise on their behalf.”
-I poked my head out from under the blanket. Just my eyes. Lilith was sitting beside me, her expensive gown crumpling against my rumpled sheets, her expression softer than I’d ever seen it.
-“They were laughing at me,” I said, my voice small.
-“They were laughing because they were shocked. Because a man who has spent the past month perfecting the art of watching paint dry just walked into my office and delivered a thirty-minute technical presentation on a vessel that doesn’t exist. A vessel that, I might add, appears to be extremely well-designed.” She tilted her head. “Is it well-designed? I’m not an expert.”
-“I… think so? I’d need actual engineers to check the numbers. But the principles are sound. I used to read about this stuff. Before. I had a…” I hesitated, editing out the other world. “I had a phase. A sailing phase. It stuck.”
-“A phase.” Her lips twitched. “John, you designed a forty-two-metre twin-keel yacht with solar arrays and a dive platform and a garage for a jet ski. That’s not a phase. That’s a passion.”
-I didn’t know what to say to that. The word “passion” felt too big, too serious, too much like something that belonged to people who actually did things with their lives.
-Lilith must have read my expression, because she reached out and, very gently, pulled the blanket the rest of the way off my head. Her fingers brushed my hair, which was probably a disaster, and she didn’t seem to mind.
-“I sent my security team away,” she said. “They were planning a raid on your room, by the way. We thought you were hiding a mistress.”
-I stared at her. “A mistress.”
-“The nocturnal box-smuggling was suspicious.”
-“I was getting paper. For the drawings.”
-“I know that now.” She laughed again, and this time it was full and genuine and crinkled the corners of her eyes. “Honestly, John. A mistress. I should have known you’d be up to something infinitely stranger.”
-“Is ‘infinitely stranger’ a compliment?”
-“From me, yes.” She looked around the room, at the blizzard of paper, the sketches taped to every available surface, the evidence of four days of obsessive, solitary work. “You were afraid to show me this. Why?”
-The question hit harder than I expected. I pulled the blanket back up to my chin, a reflex, a shield. “Because I don’t earn money. The contract says I can’t. And I was asking you for a hundred and fifty million dollars. For a boat. From a man who wears flamingo swim trunks and sleeps in a pool. I thought you’d think I was a leech. Taking advantage. Asking for more after already getting everything.”
-Lilith was quiet for a long moment. When she spoke, her voice was low and steady and carried an intensity that pinned me in place.
-“I would rather fund a thousand boats than have you hide things from me, John. You’re not a leech. You never have been. A leech takes and gives nothing back. You just gave me a thirty-minute presentation on a sailing yacht with your eyes sparkling so brightly I could barely see anything else in the room. Do you know how long it’s been since I’ve seen anyone’s eyes sparkle like that? In this house? In my life?”
-I swallowed. My throat was tight. “They… sparkled?”
-“Like a child on their birthday.” She reached down and picked up one of the drawings from the floor, a detailed cross-section of the hull. She studied it with the same intensity she probably applied to billion-dollar contracts. “The project is funded. I’ll provide three hundred million for the first phase—construction, testing, whatever you need. A room near yours will be converted into a private studio. I’ll hire the most respected naval architects in the country to assist with the technical details. You’ll be the director. The vision is yours.”
-I blinked. “Three hundred million? I said a hundred and fifty.”
-“I’m doubling it. I expect overruns. And I want the best materials. The best engineers. The best everything.” She set the drawing down and met my eyes. “You designed this in a few days with nothing but pens and paper and whatever strange knowledge you’ve been hoarding in that head of yours. I want to see what you can do with a real team behind you.”
-For the second time that night, my vision blurred. But this time it wasn’t humiliation. It was something much bigger, much warmer, something I didn’t have a name for.
-“I don’t know if it’ll work,” I whispered. “The physics might be off. The rig might be unstable. I’m not a real architect.”
-“Then we’ll test it. We’ll simulate it. We’ll build prototypes and break them and build better ones.” She stood, smoothing her gown, but her gaze stayed on me. “That’s how real things get made, John. By people who are willing to fail until they don’t.”
-I lay there, tangled in my blanket, staring up at the woman who had gone from terrifying ice queen to unexpected benefactor in the space of a single conversation. My heart was pounding. My face was hot. And somewhere deep in my chest, something that had been frozen for a very long time—since the fluorescent lights, since the spreadsheets, since Dave and the overtime and the dying—began, very slowly, to thaw.
-“Thank you,” I managed. The words felt pathetically inadequate. “I don’t… I don’t know how to…”
-“You can thank me by building it,” Lilith said. She paused at the door, one hand on the frame, and looked back at me. There was a smile on her lips, small but real, the kind of smile that changed the whole architecture of her face. “And by not hiding in your room with mysterious boxes at two in the morning. The security team has enough to do.”
-Then she was gone, the door clicking shut behind her, and I was alone in a room full of paper and possibility.
-I pulled the blanket back over my head and let out a breath I felt like I’d been holding for four days. Then, because I couldn’t help it, I started laughing. Quiet at first, then louder, until I was cackling into my pillow like a maniac.
-A studio. A team. Three hundred million dollars.
-I was going to build a boat.
-The kept man was going to build a boat.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-The summons came exactly seven days after my legendary blanket-hiding performance.
-"Madam Roseworth requests your presence in the east wing annex, sir," Mrs. Hardwick announced, appearing in my doorway with her usual supernatural timing. I was in the middle of a riveting game of "stare at the ceiling and wonder if I'd hallucinated the whole three-hundred-million-dollar thing." "She says to bring your drafting supplies."
-I sat up so fast I nearly gave myself a head rush. "The annex? The empty one next door?"
-"I believe it's no longer empty, sir."
-I grabbed my sad little bundle of pens and the crumpled tube of surviving blueprints and followed Mrs. Hardwick down the corridor. My heart was doing something complicated in my chest—somewhere between hope and terror, with a chaser of the lingering humiliation from the office incident. Lilith hadn't mentioned the three laughing officers again, but I'd noticed two of them had been reassigned to "external security operations," which I suspected was Roseworth code for "guarding a very remote gatehouse in the rain."
-We stopped in front of the annex door. It was closed. Mrs. Hardwick stepped aside with a small, knowing smile—the first genuinely warm expression I'd ever seen on her face.
-"Madam Roseworth is waiting inside, sir."
-I pushed the door open.
-And forgot how to breathe.
----
-The room was enormous. Not bedroom-enormous, not sitting-room-enormous, but *aircraft-hangar-enormous*. Somehow, in a week, Lilith had knocked down walls—or built new ones, or folded space itself—and created a cathedral of creativity. The ceiling soared two storeys high, crowned with a massive skylight that flooded the space with golden afternoon sun. Three walls were floor-to-ceiling whiteboard, pristine and gleaming, waiting to be filled. The fourth wall was glass, looking out onto the gardens and the distant sparkle of the sea.
-In the centre of the room stood not one, not two, but four enormous drafting tables—real ones, the kind with adjustable angles and parallel rulers and built-in pencil grooves. A library of naval references lined a custom bookshelf: hydrodynamics, material science, structural engineering, meteorological navigation. There were model ship hulls suspended from the ceiling on near-invisible wires. A corner workstation with multiple screens hummed softly, loaded with design software I didn't recognize but desperately wanted to touch.
-And the coffee machine. Good God, the coffee machine. It looked like a spaceship had mated with an Italian café and produced a chrome-encrusted offspring with more knobs and levers than a cockpit. A small brass plaque on it read: "For emergency design sessions only."
-I took two steps into the room and stopped. My flip-flops made soft slapping sounds on the floor—real slate tile, cool and smooth. My eyes were probably the size of dinner plates.
-"I don't…" I started, then stopped. My throat was tight. "This is…"
-"Acceptable?"
-I spun around. Lilith stood in the doorway, one shoulder leaning against the frame, her arms crossed. She wore a simple white blouse and navy slacks, her hair pulled back in a practical ponytail. She looked like a woman who had just completed a very satisfying spreadsheet and was now enjoying the results.
-Her eyes met mine, and I saw it—the quiet satisfaction. She'd been waiting for my reaction. She'd been looking forward to it.
-"Acceptable?" I croaked. "Lilith, this is… I've never had a space that was mine. Not in my whole life. I had a cubicle once. It was beige. The ceiling tile leaked."
-"This one doesn't leak." She walked past me, her heels clicking on the slate, and trailed her fingers along one of the drafting tables. "The naval engineering team arrives tomorrow morning. Five of the country's most respected maritime architects. Captain Vaara, who designed the Meridian-class research vessels. Dr. Okonkwo, who literally wrote the textbook on hull hydrodynamics. Three others with credentials so impressive they made my lawyers nervous." She turned back to face me. "I told them they'd be working under a man who designed a sailing yacht in four days with pens and paper. They're… intrigued."
-My stomach plummeted. "They're coming tomorrow? As in, tomorrow-tomorrow? As in, less than twenty-four hours from now?"
-"Yes."
-"And they're going to be working under me? A man who spent last month watching paint dry?"
-"Yes."
-"Lilith." I grabbed the edge of the nearest drafting table for support. "I'm not a naval architect. I'm barely a functional adult. Half my knowledge comes from reading articles during my lunch breaks, and the other half comes from—" I nearly said *another dimension* and bit my tongue so hard I tasted copper. "—from, uh, fever dreams. Very detailed fever dreams."
-She studied me for a moment. Her green eyes were unreadable, but the corner of her mouth twitched—the almost-smile I was learning to recognize as her version of open amusement.
-"Are you sure about this?" I asked, my voice smaller than I meant it to be. "The money. The team. The whole thing. Are you absolutely, completely, one-hundred-percent sure?"
-"I'm never unsure."
-She said it the way she might say "water is wet" or "the Roseworths own half the eastern seaboard." As a statement of fact. As a law of nature. She wasn't trying to be reassuring. She was simply telling the truth.
-I opened my mouth to argue, to point out all the ways this could fail, to list the thousand reasons why putting me in charge of anything was a terrible idea. But before I could get a word out, her gaze softened. Just slightly. Just enough.
-Her eyes lingered on mine for one heartbeat. Two. Three. The afternoon light caught the green in them, and I felt something shift in my chest—something warm and terrifying and entirely inappropriate for a man who was technically her kept pet.
-Then she blinked, and the moment passed.
-"Dinner at eight," she said, walking toward the door. "The chef is attempting sushi. She'd appreciate it if you arrived on time."
-And then she was gone, heels clicking down the corridor, leaving me alone in the most incredible room I'd ever stood in.
----
-I didn't move for a solid minute. I just stood there, surrounded by whiteboards and drafting tables and model ships and the faint, clean scent of new slate and fresh possibility.
-Then I walked over to the coffee machine, because I needed something to do with my hands that wasn't trembling. The instruction manual was in Italian. I pressed a random button. The machine hummed, whirred, and produced a perfect espresso with a crema so golden it looked painted.
-I drank it in one gulp, burned my tongue, and didn't care.
-Then I picked up a fresh marker from the tray on the nearest whiteboard, uncapped it, and drew a single, wobbly line. Then another. Then the rough outline of a hull section I'd been turning over in my head for days.
-The marker moved. The whiteboard filled. The sun slid across the skylight.
-I'd meant what I said to Lilith. I wasn't an engineer. I was barely an adult. My knowledge was a patchwork of half-remembered articles, late-night research spirals, and a passion that had no business being as deep as it was.
-But I had a studio now. I had a team coming tomorrow. I had three hundred million dollars and a woman who believed in me with the serene, unshakeable confidence of someone who'd never been wrong about anything.
-I drew another line. Then another.
-The kept man had a lot of work to do—and for the first time in two lifetimes, that didn't feel like a prison sentence.
-It felt like flying.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-I didn't sleep that night.
-Not for lack of trying. I lay in my bed, staring at the painted clouds on the ceiling, running through every piece of naval terminology I could remember. *Apparent wind. Angle of attack. Laminar flow. Displacement-length ratio.* The words rattled around my skull like marbles in a dryer. At three in the morning, I got up, shuffled to the studio in my flamingo pajamas, and practiced drawing keel cross-sections on the whiteboard until my marker ran dry.
-By the time the sun rose, I'd consumed four espressos from the spaceship coffee machine and my hands were vibrating with a combination of caffeine and pure, undiluted terror.
-"They're here, sir," Mrs. Hardwick announced from the studio doorway at precisely nine o'clock. "Shall I escort them in?"
-I was standing behind the largest drafting table, my blueprints spread out before me, wearing what Petra had labelled "Creative Professional: Approachable Authority"—a crisp linen shirt (untucked, I had standards), tailored trousers (no cargo pockets, a genuine sacrifice), and actual leather shoes that made my feet feel like they'd been imprisoned. I'd even combed my hair. Once.
-"Yes," I said, my voice cracking slightly. "Send them in. Into the lion's den. Which is me. I'm the lion. Wait, that came out wrong—"
-Mrs. Hardwick gave me a look that was two parts pity and one part amusement, then disappeared.
-I heard them before I saw them. Five voices, all female, all speaking in the clipped, efficient tones of people who'd forgotten more about engineering than I'd ever learn. The door swung open, and they filed in like a tribunal of highly-educated judges.
-Captain Vaara led the pack. She was exactly what I'd imagined—tall, broad-shouldered, with steel-grey hair cropped short and eyes that looked like they'd seen a thousand ships and found most of them wanting. She wore a simple navy jacket with actual captain's stripes on the sleeves, which felt like overkill until I remembered she'd designed actual warships.
-Behind her came Dr. Okonkwo, a woman in her fifties with scholarly glasses and the kind of serene, terrifying intelligence that suggested she could calculate stress loads in her head while simultaneously critiquing your life choices. The other three—I caught their names in a blur: Commander Sato, retired naval architect who'd pioneered the Meridian-class hull form; Professor Lindqvist, a materials specialist whose accent placed her somewhere Scandinavian; and Engineer Torres, younger than the others, with sharp dark eyes that immediately began cataloguing every sketch on the whiteboards.
-Five of the world's top naval engineers. All women. All staring at me.
-"Mr. Doe," Captain Vaara said. It wasn't a greeting. It was an assessment. "Madam Roseworth has spoken highly of your vision. We're eager to see the designs."
-Translation: *This had better be good.*
-"Right," I said. "Designs. Yes. I have those. They're… here." I gestured at the blueprints spread across the table, my hand making a flopping motion that conveyed absolutely zero authority. "Please. Gather around. Look. I'll explain."
-They gathered. They looked. I explained.
----
-The first two minutes were the worst of my life.
-"Okay, so," I began, pointing at the main plan view, "this is a forty-two-metre sailing yacht. Two-masted schooner rig. The hull is a modern displacement form—fine entry forward, flat aft sections, designed to plane in light air but still handle a seaway. Twin keels, which I know is unusual, but the draft constraints in the archipelago—"
-"Twin keels?" Captain Vaara interrupted, her eyebrows rising. "For a vessel of this size? That's unconventional."
-"Unconventional is one word for it," Dr. Okonkwo murmured, adjusting her glasses. "The drag penalty alone—"
-"I've calculated the drag penalty," I said, my voice wobbling. I grabbed another sheet—my hydrodynamics page, covered in numbers I'd checked and rechecked until my eyes crossed. "The keels are high-aspect, NACA 65-series foil sections. The induced drag is offset by the increased righting moment, which means more sail area, which means more speed. Plus, the shallow draft opens up anchorages that deep-keel yachts can't touch. There's a whole island chain—"
-"You want a forty-two-metre hull," Captain Vaara said slowly, "driven by… canvas?"
-She said "canvas" the way someone might say "hopes and dreams" or "interpretive dance."
-"It's not canvas," I said. "It's a laminate composite, shaped to an aerodynamic profile. The mainsail alone—"
-"Where's the engine room?" Commander Sato asked, peering at the plans. She'd been circling the table like a shark. "I see a small auxiliary compartment, but for a vessel this size—"
-"The auxiliary is just for manoeuvring in harbour and charging batteries," I said. "Under sail, the hydro-generator provides all the power you need. The whole point is that the engine isn't the primary propulsion."
-A profound silence fell over the room.
-"No… primary propulsion," Engineer Torres repeated, as if trying to translate a foreign language. "So the wind just… pushes you?"
-"Yes! Exactly!" I was sweating now. I could feel it beading on my forehead. "The sails generate lift—not just push, lift, like an airplane wing—and the keel converts that into forward momentum. The apparent wind—"
-"What's apparent wind?" Professor Lindqvist asked.
-"It's the wind you feel when you're moving. It's a vector sum of the true wind and the boat's velocity. As the boat speeds up, the apparent wind shifts forward, which changes the sail trim, which—"
-"Slow down," Captain Vaara said, holding up a hand. "You're saying the wind changes because the boat is moving?"
-"Yes."
-"And that affects the sails?"
-"Yes."
-"And this is… desirable?"
-I stared at her. She stared back. The other four engineers exchanged glances that ranged from bewildered to mildly alarmed.
-This was going even worse than I'd feared. I'd spent the night rehearsing a confident, articulate presentation, and instead I was sweating through my linen shirt while a captain of industry asked me if wind was supposed to do things.
-But then something shifted. Not in them—in me.
-Because the thing was, I knew this stuff. Not formally. Not with a degree or a certification or any of the credentials these women had earned through decades of hard work. But I knew it the way a person knows their favourite song, or the layout of their childhood home, or the exact sequence of moves in a game they've played a thousand times. Sailing theory was burned into my synapses. It had been my escape, my secret joy, the one thing that had made me feel alive during the grey, fluorescent years of my previous life.
-And standing here, stammering and sweating and failing to explain it, I realized I wasn't going to let them dismiss it. Not this. Not the one thing I actually cared about.
-I straightened up. I stopped looking at the floor. I met Captain Vaara's eyes.
-"Look," I said, my voice steadier now. "I know this sounds insane. You've spent your careers building motor vessels—brilliant ones, world-class ones. And I'm standing here asking you to believe that the wind, which you probably think of as a navigation hazard, can push a forty-two-metre yacht through the water at fifteen knots in near silence. But I've seen it. I've studied it. And I've designed it."
-
-I flipped over the top blueprint to reveal the sail plan underneath. A clean, elegant drawing of the schooner rig, every line calculated, every angle annotated.
-"The physics works. The numbers check out. And if you give me a chance, I can prove it."
-
-Another silence. But this one was different. Less skeptical. More… curious.
-
-Captain Vaara looked at the sail plan. Then at me. Then at the sail plan again.
-"Fifteen knots," she said. "Under wind alone."
-"In the right conditions, yes."
-"No engine noise."
-"Almost none. Just the sound of the water."
-
-She was quiet for a long moment. Then, very slowly, the corner of her mouth twitched.
-"You're either a genius or a madman, Mr. Doe."
-"Honestly," I said, "it could go either way."
-
-Dr. Okonkwo snorted. It wasn't quite laughter, but it wasn't dismissal either. Commander Sato had pulled out a calculator and was already tapping numbers. Professor Lindqvist was examining the materials spec sheet with professional interest. Engineer Torres was photographing the whiteboards with her phone.
-
-They weren't convinced. But they were willing to be.
----
-
-I didn't notice Lilith until the engineers had left for lunch.
-
-She was standing in the doorway—the same spot where she'd stood the day before, arms crossed, shoulder leaning against the frame. I had no idea how long she'd been there. Long enough, clearly.
-"That was impressive," she said.
-
-I jumped. "How long have you been standing there?"
-"The entire time." She walked into the room, her heels clicking on the slate. "You stammered through the first ten minutes. Then something changed. Your posture shifted. Your voice dropped." She stopped beside me, looking down at the blueprints. "You care about this, don't you? Genuinely."
-"More than I've ever cared about anything," I admitted. "Which is sad, because I once really cared about a limited-edition gaming console."
-
-She didn't laugh. She was studying me with that intensity I was learning to recognize—the Roseworth Assessment Look, the one she probably used before signing billion-dollar contracts.
-"The research budget for the project has been doubled," she said. "You'll need simulation software, tank testing, materials prototyping. Captain Vaara mentioned something called a 'wind tunnel'—my assistant is sourcing one. Is there anything else?"
-
-I blinked. "Doubled? But you already gave me three hundred million. How much more—"
-"The exact number isn't your concern." She reached out and, very deliberately, straightened the collar of my linen shirt. Her fingers brushed my neck. Cool, precise, lingering for one heartbeat. Two. "What's your concern is designing the best sailing yacht this world has ever seen. Let me worry about the money."
-
-I swallowed. "That's… an arrangement I can work with."
-"Good." She turned toward the door, then paused. "And John? The engineers asked me, before they came in, what your credentials were."
-
-My stomach clenched. "What did you tell them?"
-
-She looked back over her shoulder, and there it was—that almost-smile, the one I'd seen at the gala, the one that crinkled the corners of her eyes and made her look less like a CEO and more like the woman who'd once laughed at Chopsticks.
-"I told them you were the man who watched paint dry for three hours and somehow made it interesting. I said if anyone could make wind interesting, it was you."
-
-She left. The door clicked shut.
-
-I stood there, alone in the studio, surrounded by whiteboards and blueprints and the lingering scent of her perfume, and realized I was grinning like an idiot.
-
-The engineers weren't convinced yet. The physics wasn't proven. The whole thing might still crash and burn in spectacular fashion.
-
-But Lilith Roseworth, the woman who was never unsure, had just doubled my budget because she believed in me. Not in my contract. Not in my usefulness as a guarantee. In *me*.
-
-I turned to the whiteboard, picked up a fresh marker, and got back to work.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+The next forty-eight hours were a blur of graphite, caffeine, and the kind of obsessive focus I hadn't experienced since my previous life's worst quarterly reviews. But this was different. This wasn't dread-driven deadline panic. This was joy. Pure, creative, all-consuming joy.
+The design studio—which I'd apparently created and forgotten about—was a bright, airy room in the east gallery with a wall of windows overlooking the gardens. The staff had cleared the tables as instructed and laid out my supplies with military precision: stacks of gridded paper, an army of mechanical pencils, rulers of varying lengths, a protractor I wasn't sure how to use, and a coffee machine that ran on what I assumed was dark magic, because it never seemed to run out.
+I worked through the first night. I didn't notice the sun setting or rising. The maids changed shifts around me, and I registered them only as gentle presences who refilled my coffee and occasionally left sandwiches I didn't remember eating but later found myself grateful for.
+I started with research. The tablet became my library, pulling up every scrap of naval architecture I could find in this world's databases. The physics were the same. The hydrodynamics, the material science, the fundamental principles of how a hull moves through water—all identical to my old world. The knowledge existed. It just hadn't been applied to leisure sailing.
+I sketched. I erased. I sketched again. My lines were wobbly at first, the hand of a man who hadn't drawn anything technical since high school drafting class. But muscle memory is strange and patient, and slowly, over hours of repetition, the shapes began to emerge.
+A hull. A keel. A mast. A sail plan.
+The first design was practical. Sensible. A twenty-metre cruising sloop with a deck salon, a wide bow for stability, twin rudders for control, and a lifting keel that would let it navigate shallow waters. Room for two in the owner's cabin, plus space for two to four crew—or servants, as this world would call them. Estimated build cost: one to five million, depending on materials and yard rates.
+It was a beautiful boat. A boat that made sense. A boat a reasonable person would be proud to build.
+I finished the preliminary drawings around two in the morning on the second night. I sat back, stretched my aching shoulders, and looked at what I'd created. The coffee machine hummed companionably. The moon hung outside the window, fat and silver. The house was silent.
+And I was already reaching for a fresh sheet of paper.
+Because the sensible design had opened a door in my brain, and behind that door was something else. Something bigger. Something that had been waiting in the back of my imagination since my old life, a fantasy I'd never even bothered to sketch because it was too expensive, too ambitious, too impossible.
+Here, nothing was impossible.
+I began to draw.
+The new design was forty to forty-five metres. A performance-oriented sailing superyacht. A single-mast sloop rig with hydraulic sail handling—because even in a fantasy, I wasn't going to haul lines by hand. A telescopic lifting keel, five metres fully extended for offshore stability, two and a half metres retracted for coastal access. A low, elongated deck salon wrapped in panoramic glazing, the kind of glass that would make the horizon part of the interior. A structural layout that kept the central saloon visually open but segmented for privacy. A full-beam owner's suite with a bathroom the size of my old apartment. Guest cabins for four, crew quarters for six to eight. A tender garage at the stern, an extendable swim platform, deck circulation designed for everything from private cruising to day entertaining with up to thirty guests.
+It was obscene. It was magnificent. It was the kind of yacht that didn't just turn heads—it made other boats apologise for existing.
+I drew until my fingers cramped. I drew until the coffee ran out and a night maid silently replaced the carafe. I drew until the sun rose on the second morning, painting the studio in shades of gold, and when I finally looked at what I'd created, I laughed out loud.
+Two blueprints. Two completed designs. One sensible. One insane.
+The sensible one was the pitch. That was the plan. I'd show Lilith the twenty-metre cruiser, make a reasonable case for funding, and never mention the superyacht. The superyacht was a fantasy. A joke. The kind of thing you sketched for fun and then rolled up and filed away under "daydreams."
+I rolled up both sets of drawings and tucked them under my arm.
+"Sir?" A maid—morning shift, fresh-faced and slightly alarmed by my appearance—stood in the doorway. "Are you... well?"
+I looked down at myself. Same starfish shirt, now rumpled and coffee-stained. Same cargo shorts, slightly less crisp. Hair that had been through forty-eight hours of creative frenzy and looked it.
+"I'm brilliant," I said. "I need to see my wife."
 
 
 
