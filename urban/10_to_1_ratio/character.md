@@ -81,8 +81,8 @@ By the time Johns little hobby grow to this size Lilith informed him that she is
 
 Perfect, lets now go smoothly to the next section (Keep in mind: use the same style-the "I"-perspective of John Roseworth, don't include other points):
 
-- **Rooftop sunbathing and memory** – Four months in, John is sprawled on the sun-warmed roof tiles in autumn. He suddenly recalls his past life’s escape fantasy: sailing. He shouted that he wanted a tabled and in seconds a maid presented one to him. After an online search he realizes with shock that this world never developed recreational sailing—engines took over completely.
-- **The two blueprints** – Over a frenzied forty-eight hours, he drafts two complete conceptual designs: a sensible 20-metre cruiser and a monstrous 42-metre performance sloop that exists only as a fantasy. He plans to pitch the small one.
+- **Lilith’s decision** – She says she prefers the big one but won’t give him the money—because their contract says he doesn’t manage money. If he wants to build it, he should just *start*, and the money will be there. The realisation hits him: she’s giving him total freedom.
+- **The hug (romance start)** – John, overwhelmed with joy, throws his arms around Lilith and thanks her repeatedly. She freezes in shock, then awkwardly pats his back. When he sprints out, she sits at her desk, one hand pressed to her racing heart, utterly disarmed.
 
 
 

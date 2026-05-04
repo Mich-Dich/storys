@@ -835,3 +835,171 @@ I looked down at myself. Same starfish shirt, now rumpled and coffee-stained. Sa
 
 
 
+Four months into my tenure as a Roseworth kept man, I discovered that the manor's roof was, against all expectations, the single best place on the entire estate.
+I'd initially climbed up there because I'd seen a squirrel on the gutter and wanted to know if it had a nest. It did. The squirrel was living better than I had in my first apartment. After that, I kept coming back—sometimes to think, sometimes to nap, sometimes to escape the gentle but persistent attention of fifty-six staff members who treated me like a beloved but catastrophically stupid family pet. The roof was steep in places, flat in others, and covered in tiles that held the autumn sun like a battery. If I positioned myself correctly on the south-facing slope, legs braced against a chimney, I could lie back and let the warmth soak into my bones while the rest of the world carried on below.
+Today was one of those days. October had turned the estate's trees into a riot of orange and red. The lake glittered in the distance, placid and forgiving, as if it hadn't tried to abduct me three months earlier. I was wearing a shirt covered in neon pink hibiscus flowers—a bold choice for autumn, but I'd made bolder—and my oldest pair of cargo shorts, which had been washed so many times they'd achieved a kind of structural integrity that bordered on architectural. My flip-flops lay beside me, one stacked neatly on the other, because even chaos had standards.
+I wasn't thinking about anything in particular. That was the point. I'd spent my entire previous life thinking—about deadlines, about budgets, about the hundred tiny catastrophes that made up corporate existence—and I'd died anyway. Now I let my brain idle. It was better that way. Healthier.
+But brains, even idling ones, have a way of ambushing you.
+I closed my eyes against the autumn sun, and something slipped through the crack between consciousness and memory. A sensation. A smell. Salt water. Diesel fumes. The creak of fibreglass. The snap of canvas in a stiff wind.
+I was back in my old life. Not the office—somewhere else. A weekend. A rare, precious Saturday when I'd escaped the spreadsheets long enough to drive to the marina. I'd stood on the dock for an hour, just watching the boats. Sailboats, mostly. The way they leaned into the wind, the way the light caught their hulls, the way they moved through the water like they'd figured out a secret the rest of the world had forgotten. I'd promised myself, standing there, that one day I'd own one. One day I'd learn to sail. One day I'd point a bow toward the horizon and just... go.
+Then Monday came, and the spreadsheets returned, and the dream got buried under a mountain of overtime and someone else's deadlines. I'd died without ever setting foot on a sailboat.
+I opened my eyes. The autumn sky stared back, indifferent and infinite.
+"Tablet," I said aloud, without sitting up. "I need a tablet."
+There was a pause of approximately three seconds—the kind of pause that would have been impossible in any other household in the world—and then a voice from somewhere below said, "Sir?"
+I tilted my head toward the gutter. A maid I didn't recognise was standing on the lawn, neck craned upward, holding a tablet in both hands like an offering.
+"How did you—" I started, then stopped. "No, forget it. How did you get here so fast?"
+"You shouted, sir. I was pruning the hedge."
+"I didn't shout. I said it at normal volume."
+"We're trained to listen for your voice, sir. After the lake incident."
+Right. The lake incident. The flamingo. The panicked search-and-rescue operation. I should probably have been embarrassed, but at this point, my capacity for embarrassment had been worn down to a smooth, frictionless surface.
+"Can you throw the tablet up here?"
+She assessed the distance—two storeys of stone wall, a steep-ish roof, and a man in a hibiscus shirt sprawled across the tiles like a lizard. "I'd rather not risk damaging the device, sir. I'll bring it up."
+Three minutes later, a different maid—this one wearing the slightly more formal uniform of the interior staff—emerged onto the roof through an attic window I hadn't known existed. She crossed the tiles with the sure-footed confidence of someone who had either been trained in steep-roof navigation or had simply accepted that her job description now included "deliver tablets to husband on roof."
+"Your tablet, sir. And Mrs. Hardwick asked me to remind you that the roof is not technically rated for recreational sunbathing."
+"Noted. Tell Mrs. Hardwick I'm conducting important research."
+"On the roof tiles, sir?"
+"Thermal absorption properties. It's very scientific."
+She didn't even blink. "Of course, sir. Will there be anything else?"
+"No. Thank you. Excellent tablet delivery. Five stars."
+She retreated through the attic window, and I was alone again with the sun-warmed tiles and the tablet and the sudden, electric hum of a thought that wouldn't let go.
+I opened the browser and typed: *sailboats for sale*.
+The results were... nothing. Not nothing as in "no results found." Nothing as in *wrong*. The search engine showed me fishing trawlers. Cargo vessels. Military ships. A few luxury motor yachts with engines the size of small apartments. Nothing with sails. Nothing recreational. Nothing that looked like freedom.
+I refined the search. *Recreational sailing. Sailboat racing. Yacht club.* Each query came back stranger than the last. The words existed, technically—historical references, mostly, to a time before engines—but there were no listings, no clubs, no manufacturers. The Wikipedia equivalent had a brief article on "wind-powered maritime travel" that ended, almost apologetically, with: "The advent of the combustion engine rendered sail-based transport obsolete for all practical purposes."
+I stared at the screen. The autumn sun beat down on my hibiscus shirt. Somewhere in the distance, a gardener was humming.
+In my old world, sailing had been a massive industry. Marinas full of boats. Regattas. Yacht clubs with stupid blazers and expensive dues. An entire culture built around the idea of harnessing the wind for no other reason than because it was beautiful and difficult and utterly pointless. And here—in this world of thirty-to-one gender ratios and shopping-cart chariots—it simply didn't exist. Engines had arrived, and the world had collectively shrugged and said, "Good enough."
+*But it's not good enough*, I thought. *It's not even close.*
+The memory of the marina came back, sharper now. The creak of the dock. The smell of salt. The way those sailboats had moved—silent, elegant, alive. I'd wanted one with a desperation that had felt almost physical. I'd buried that want under years of overtime, but it had never really died. And now, here, in a world where I could have anything I asked for, I could finally...
+I could finally build it.
+The thought landed like a lightning strike.
+I didn't need to buy a sailboat. There were none to buy. I needed to *make* one. To design it. To bring something into existence that this world had forgotten how to want.
+I scrambled off the roof—not gracefully, but fast, my flip-flops clutched in one hand and the tablet in the other. I slid down a section of tiles, caught myself on the gutter, and dropped onto the lawn in a crouch that would have impressed a gymnast if any gymnast had been watching.
+"Table!" I shouted, already running toward the east wing. "I need a drafting table! And paper! Big paper! The biggest paper we have! And pencils! And a ruler! And—" I paused, nearly colliding with a surprised gardener. "—a protractor! Do we have a protractor?"
+The gardener blinked. "I... believe so, sir?"
+"Excellent. Carry on with the... plants."
+I burst through the east wing doors, and the staff, by now utterly accustomed to my eruptions, scattered and reformed around me like a well-trained emergency response team. By the time I reached my rooms—which I'd long since converted into a chaotic hybrid of bedroom, gaming den, and snack repository—a drafting table was already being assembled near the window. A stack of paper, thick and cream-coloured, sat waiting. Pencils of varying hardness had been arranged in a neat row. A protractor, a compass, a T-square, and several tools I didn't recognise but was immediately excited about had been laid out with surgical precision.
+Mrs. Hardwick appeared in the doorway. "Will you be requiring drafting assistance, sir?"
+"I have no idea what I'm doing, Mrs. Hardwick. So probably, but not yet. First I need to get the thing in my head onto paper before it escapes."
+"Very good, sir. I'll have meals sent up."
+She departed, and I stood before the drafting table, my heart hammering in a way it hadn't since the day I'd kicked open a door and accidentally married a stranger.
+*Alright*, I thought. *Let's see if I remember any of this.*
+My previous life had included a brief, intense period of sailing obsession—an escape fantasy I'd nurtured through lunch breaks and late-night internet rabbit holes. I'd never sailed, but I'd studied. I'd learned the terminology. The physics. The difference between a sloop and a ketch, a fin keel and a full keel, fractional rigs and masthead rigs. I'd memorised hull shapes and sail plans and the arcane mathematics of righting moments. It had been useless knowledge in a world where I couldn't afford a dinghy. But here, in a world where money was apparently infinite and consequences were someone else's problem, it was suddenly the most valuable thing I owned.
+I picked up a pencil and began to sketch.
+---
+Forty-eight hours passed. I know because Mrs. Hardwick kept bringing meals, and the light outside the window cycled through two full rotations of day and night. I barely slept. I showered once, I think, though the details were hazy. The hibiscus shirt was replaced by a different hibiscus shirt at some point—the staff, I suspected, were rotating them out for washing without my noticing.
+The first blueprint emerged fully formed from the chaos: a 20-metre cruising sloop, sensible and manageable. Deck salon with panoramic windows. Twin rudders for stability. A lifting keel that would let her nose into shallow bays. Accommodation for two owners—Lilith and me, I realised with a strange jolt—plus space for two to four staff. She'd be fast enough to be fun, small enough to be handled by a modest crew, and expensive enough—maybe one to five million—to feel like a serious request without being completely insane.
+She was the reasonable option. The one you pitched to a businesswoman who appreciated ROI and practicality. I named her in my head: *Second Wind*. Modest. Appropriate. A sensible first step into a non-existent industry.
+The second blueprint was none of those things.
+She—*she*, because this one was definitely a she—had started as a sketch in the corner of the first sheet and had grown, like a fungus with ambition, until she'd demanded her own paper. 42 metres of pure, unapologetic performance. A single-mast sloop with a hydraulic sail-handling system, because otherwise the forces involved would tear a human being in half. A telescopic lifting keel that would drop five metres for offshore stability and retract to one-and-a-half for nosing into anchorages. A deck salon so low and sleek that the panoramic windows would look out at the water from what felt like arm's reach. A full-beam owner's suite with a bathroom that belonged in a luxury spa. Guest cabins for four, crew quarters for eight. A tender garage. An extendable swim platform. Lines so elegant they made my teeth ache.
+I'd drawn her in a fugue state. She wasn't a boat. She was a declaration. A monument to the escape fantasy I'd carried through two lifetimes. She was, by my rough estimate, a thirty-to-fifty-million-dollar declaration, and she would never, ever be built.
+But she existed now. On paper. In my room. Proof that the office drone who'd died at his desk had, somewhere inside him, a dream that looked like wind and water and the infinite horizon.
+I sat back from the drafting table, my hand cramped, my eyes burning, and looked at the two blueprints side by side. The sensible cruiser. The impossible superyacht. Reason and madness, rendered in pencil and ink.
+I'd pitch the reasonable one, obviously. I'd roll it up, march into Lilith's office, and present it with the calm, measured confidence of a man who had thought everything through. I would not mention the second blueprint. I would hide it. Burn it, maybe. No—the staff would find it, and Mrs. Hardwick would probably frame it. I'd hide it under the mattress, like a teenager with a magazine.
+*Five million*, I thought. *That's a lot of money, even for her. But it's not insane. It's not fifty million. It's a boat. A practical, sensible boat. She'll say yes. She's said yes to everything else.*
+I rolled up both blueprints carefully, slipped them into separate tubes, and stood up. My legs wobbled. My stomach growled with the particular ferocity of an organ that had been fed nothing but snacks for two days.
+"Sir?" A maid appeared at the door, as if summoned by the rumble. "Mrs. Hardwick has been holding dinner for you. Shall I have it sent up?"
+"Please," I said. "And also, could you tell Madam Lilith that I'd like to speak with her tomorrow? I have a proposal."
+"A proposal, sir?"
+"A proposal. Not the romantic kind. We already did that one backwards."
+She nodded and retreated, and I stood there in the wreckage of my creative frenzy—paper scraps, blunted pencils, a protractor that had been used as a coffee coaster—holding two blueprint tubes like they contained the secrets to the universe.
+One of them kind of did.
+I just had to find the courage to share it.
+
+
+
+
+
+
+
+
+
+
+
+The next morning, I stood outside Lilith's office with a blueprint tube in each hand and the distinct sensation that I was about to do something very brave or very stupid. Possibly both. The two had become increasingly difficult to separate since I'd arrived in this world.
+Her office was in the manor's central wing, a part of the house I rarely visited. It was quieter here. More serious. The art on the walls was older, the carpet thicker, the air itself seeming to hum with the quiet machinery of power. A pair of assistants worked at desks in the anteroom, their fingers flying across keyboards, their expressions suggesting they were solving problems that would give normal people nosebleeds.
+"Mr. Roseworth," one of them said, looking up. She didn't blink at my shirt—a pale yellow number covered in surfboards—which I appreciated. "Madam Lilith is expecting you."
+"Thank you. Great keyboard. Very... clicky."
+I walked past her desk and through the heavy oak doors before she could respond.
+Lilith's office was exactly what I'd expected and somehow still overwhelming. Floor-to-ceiling windows overlooked the east gardens, flooding the room with autumn light. Bookshelves lined the walls, stuffed with leather-bound volumes that looked old enough to have opinions about the printing press. Her desk was a vast slab of dark wood, its surface covered in documents, tablets, and what appeared to be three different phones, each one presumably dedicated to destroying a different competitor.
+Lilith herself sat behind the desk, dressed in a charcoal blazer that probably cost more than my previous life's car. She looked up as I entered, and something in her expression shifted—the professional mask sliding aside just enough to reveal a flicker of genuine curiosity.
+"John," she said. "You asked for a meeting. That's very formal."
+"I'm a very formal person. When I want to be. Which is almost never. But today." I clutched the blueprint tubes like they were flotation devices. "Today I have a proposal."
+She leaned back in her chair, her eyes tracking the tubes. "A proposal. Should I be nervous?"
+"Probably not. Maybe. I don't know yet. I've been awake for two days and my judgement is compromised."
+"Mrs. Hardwick mentioned. She also mentioned you've been drawing something obsessively."
+"Mrs. Hardwick has excellent observational skills and a deeply unsettling ability to know everything that happens in this house."
+"Yes. That's why I hired her." Lilith gestured to the chair across from her desk. "Sit. Show me what's in the tubes."
+I sat. The chair was more comfortable than my entire previous apartment. I placed the first tube on the desk—the sensible one—and left the second tube leaning against my leg, hoping it would somehow become invisible through sheer force of will.
+"Alright," I said, taking a breath. "So. I've been doing some thinking."
+"Dangerous."
+"Extremely. And I remembered something from my... past life fantasy. A hobby I always wanted to try but never had the chance. Sailing."
+"Sailing." Her expression didn't change, but her attention sharpened. "With sails."
+"That's generally how it works, yes. Wind power. Boats. The ocean. I looked into it, and I discovered something very strange about your world."
+"Our world."
+"Our world. Right." I pulled the cap off the first tube and slid the blueprint out onto her desk. "There's no recreational sailing. Anywhere. Engines took over and nobody ever looked back."
+Lilith glanced at the paper as I unrolled it, her gaze moving across the lines and measurements with the cool, analytical precision of someone who read complex documents before breakfast.
+"This is a boat," she said.
+"It's a sailboat. A 20-metre cruising sloop. Deck salon with panoramic windows. Twin rudders. Lifting keel for shallow-water access. Room for us plus two to four staff. I estimate the build cost at somewhere between one and five million, depending on materials and—"
+"John." She held up a hand. "You're trembling."
+I looked at my hands. They were, in fact, trembling. The blueprint rattled slightly against the desk. I hadn't slept. I hadn't eaten anything substantial. I was pitching a five-million-dollar dream to a woman I'd married by accident, and somewhere in the back of my mind, the office drone who'd died from overwork was screaming that this was the moment she'd finally say no.
+"Sorry," I said, pressing my palms flat against the desk. "I'm nervous. I don't know why. I've asked you for ridiculous things before. The shopping cart. The inflatable slide. The harp I never learned to play. But this is different. This is..." I struggled for the word. "Important."
+"Why?"
+I looked at the blueprint. At the elegant lines of the hull, the sweep of the deck, the sails I'd drawn with painstaking care. "Because it's the only thing I've ever really wanted, I think. The only thing that wasn't an impulse or a joke. I wanted it in my past life, and I died before I could have it. And now I'm here, and it doesn't exist, and I could make it exist. We could make it exist. Together."
+The word "together" hung in the air. I hadn't planned to say it.
+Lilith studied me for a long moment. Her face was unreadable, but her eyes—those forest-green eyes—had gone very still. She wasn't looking at the blueprint anymore. She was looking at me.
+"This isn't the only one," she said.
+"What?"
+She pointed. I'd been so focused on the pitch that I hadn't noticed what she'd noticed: the second tube, still leaning against my leg, partially visible beneath the edge of the desk. It was darker than the first. Slightly longer. Impossible to miss if you were paying attention.
+"There's another blueprint," she said. It wasn't a question.
+I felt my face heat. "That's... that was just..."
+"Show me."
+"It's not the pitch. It's not the sensible one. It's just something I did because I couldn't stop myself. It's ridiculous. It's—"
+"John." Her voice was quiet but firm. "Show me the second blueprint."
+I hesitated. Then, with the resignation of a man who had learned that hiding things from Lilith Roseworth was about as effective as hiding from the sun, I pulled the second tube out and placed it on the desk.
+I didn't unroll it. I just stared at it.
+"It's a joke," I said. "Kind of. Not a joke like the marriage contract. A joke in the sense that it's completely unfeasible and exists only because my brain doesn't know when to stop."
+"What is it?"
+I took a breath. "An escalation I couldn't stop."
+She reached across the desk, took the tube from my hands—her fingers brushed mine, cool and steady—and unrolled the blueprint herself.
+The paper spread across her desk, and the 42-metre superyacht I'd drawn in a fugue state stared up at the ceiling like a challenge.
+Silence.
+I've heard many types of silence in my two lives. The silence of an office after a layoff. The silence of a server room at 3 AM. The silence of the lake at midnight while an inflatable flamingo plotted its betrayal. But the silence in Lilith's office as she studied my impossible dream was something else entirely. It was a silence that vibrated.
+"Explain it," she said. Her voice was different now. Quieter. "Explain every detail I'm looking at."
+I stood up, because sitting felt too constrained for what was about to happen. The words came before I could stop them.
+"She's 42 metres," I said, leaning over the blueprint. "Maybe forty-five, depending on the bow configuration. Performance-oriented. That means she's not designed to look pretty at a dock—she's designed to sail. Fast. Efficient. A single-mast sloop rig, but the sail handling is hydraulic, because otherwise the forces would be insane. You push a button, and sixty tonnes of carbon fibre and laminate swing into position like it's nothing."
+I pointed to the keel. "Telescopic lifting keel. Five metres draft when it's down, for stability in heavy seas. Two and a half metres when it's up, so you can sneak into anchorages that would strand a motor yacht. The deck salon is low and long—panoramic glazing all the way around, so when you're sitting inside, the water feels close enough to touch. It's not just a window. It's a viewpoint. A way of seeing the ocean that people in this world have forgotten exists."
+My finger traced the interior. "Central saloon. Structurally segmented but visually open. Full-beam owner's suite aft—that means it stretches the entire width of the hull—with a bathroom that belongs in a luxury spa. Guest cabins for two to four people. Crew quarters for six to eight, because something this size needs hands on deck. Tender garage. Extendable swim platform. Deck circulation optimised so you can have thirty guests aboard for the day without everyone tripping over each other."
+I was talking faster now. My hands were moving. The nerves had vanished, replaced by something electric and alive.
+"She's not a racer. She's not a floating hotel. She's a performance cruiser—the best of both worlds. You could cross an ocean in her. You could anchor off a Greek island and watch the sunset through the salon windows. You could..." I paused, my finger resting on the bow. "You could point her at the horizon and just go. Anywhere. Everywhere. She's..."
+I stopped. I realised I'd been speaking for a while. I realised Lilith hadn't said a word.
+I looked up.
+She was staring at me. Not at the blueprint. At me. Her face was still unreadable, but something had changed in her eyes. They were wider than usual. Darker. The forest-green had deepened into something I couldn't name.
+"You're describing the impossible one," she said slowly, "as if it's already real."
+I blinked. Looked down at the blueprint. At the 42 metres of carbon-fibre fantasy I'd conjured out of sleeplessness and longing.
+"Yeah, well." I forced a laugh, stepping back from the desk. "That's the joke. Thirty to fifty million, easily. Probably more. It's not a real proposal. It's a daydream. A what-if. I just... I couldn't stop drawing. I started with the sensible one, and then my brain said, 'But what if we went bigger?' and I said, 'Brain, that's a terrible idea,' and my brain said, 'Absolutely, but consider: what if we did it anyway?'"
+I laughed again. It sounded hollow.
+"So," I said, tapping the first blueprint—the sensible one. "That's the actual pitch. The 20-metre cruiser. One to five million. Reasonable. Practical. A good first step into an industry that doesn't exist. We can talk about materials and timelines and—"
+"John."
+I stopped.
+Lilith was still looking at the second blueprint. Her fingers hovered over the lines of the superyacht, tracing the curve of the hull, the sweep of the deck, the glass of the salon.
+"When you talk about this," she said, "your voice changes. You know that?"
+"Does it?"
+"You've been my husband for four months. I've watched you commandeer shopping carts and demand dinosaur pancakes and take piano lessons from maids in the middle of galas. I've read reports on every strange, impulsive, inexplicable thing you've done. And in all that time, I've never seen you like this."
+I didn't know what to say. My throat had gone dry.
+"You said you had a past life fantasy," she continued. "An office drone who died of overwork. You said he always wanted to sail. But this"—she tapped the superyacht—"isn't fantasy. This is memory. This is something you've been carrying for a very long time."
+I swallowed. "Maybe."
+"The office drone," she said quietly. "He died without ever building this, didn't he?"
+The question landed like a stone in still water. For a moment, I wasn't in her office anymore. I was back in a cubicle, staring at a screen full of spreadsheets, the fluorescent lights buzzing their funeral dirge. The marina. The dock. The sailboats I'd never touch.
+"Yes," I said. "He died without building it. Without even trying."
+Lilith looked at me for a long moment. Then she looked back at the blueprint. The superyacht glittered under the office lights, its impossible lines waiting for a verdict.
+She opened her mouth.
+And I braced myself for the inevitable laughter. The gentle refusal. The "let's stick to the sensible one."
+Whatever she was about to say, I knew it would change everything.
+
+
+
+
+
+
+
+
+
