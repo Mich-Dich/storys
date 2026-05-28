@@ -81,8 +81,10 @@ By the time Johns little hobby grow to this size Lilith informed him that she is
 
 Perfect, lets now go smoothly to the next section (Keep in mind: use the same style-the "I"-perspective of John Roseworth, don't include other points):
 
-- **Lilith’s decision** – She says she prefers the big one but won’t give him the money—because their contract says he doesn’t manage money. If he wants to build it, he should just *start*, and the money will be there. The realisation hits him: she’s giving him total freedom.
-- **The hug (romance start)** – John, overwhelmed with joy, throws his arms around Lilith and thanks her repeatedly. She freezes in shock, then awkwardly pats his back. When he sprints out, she sits at her desk, one hand pressed to her racing heart, utterly disarmed.
+- **Late nights and tea** – Lilith starts visiting the studio at odd hours, bringing tea. She asks him to explain keel dynamics just to hear him talk. He doesn’t notice her staring at him instead of the diagrams. 
+- **The blanket scene** – One night, Lilith falls asleep on the studio couch waiting for him to finish work. John drapes a blanket over her and works quietly so as not to wake her. When she stirs, she pretends to still be asleep, smiling faintly.
+- **The 5-metre prototype** – Three months later, a scale prototype is ready. On test day at the lake, John insists on sailing it himself. The team is nervous; Lilith watches from the shore with white knuckles.
+- **Success and a spin** – The prototype glides perfectly. John whoops like a child, sails to shore, and in a burst of adrenaline, lifts Lilith and spins her around. She laughs—a genuine, unguarded laugh—and when he sets her down, their eyes meet for a charged, silent moment.
 
 
 
@@ -120,14 +122,11 @@ Perfect, lets now go smoothly to the next section (Keep in mind: use the same st
 
 - **Commandeering a design studio** – John tears through the mansion until he finds a disused ballroom. He declares it his naval architecture studio and demands desks, whiteboards, and an espresso machine.
 - **Assembling the dream team** – He instructs the head maid to hire five of the world’s top experts in boat design. Within a week, five brilliant women—a hydrodynamicist, naval architect, structural engineer, interior designer, and project manager—arrive, sceptical but intrigued.
-- **Concept to calculations** – John leads the creative vision, sketching while the team translates his ideas into physics. He’s in his element, and for the first time, Lilith sees him as something other than a lovable disaster: competent, driven, alive.
-- **Late nights and tea** – Lilith starts visiting the studio at odd hours, bringing tea. She asks him to explain keel dynamics just to hear him talk. He doesn’t notice her staring at him instead of the diagrams.
+- **Concept to calculations** – John leads the creative vision, sketching while the team translates his ideas into physics. He’s in his element, and for the first time, Lilith sees him as something other than a lovable disaster: competent, driven, alive. John still does random stuff impulsively but he find his way to the studio every day, and with increasing random ness, walking, balancing on a ball, on skates, in his royal chariot, carried by 10 maids, carrying a maid (quit pro quo), .... After a few days the 5 geniuses started to bet on his arrival method. Over the weeks the maids find incresingly wired thing that John tryed to hide in the design studio
+- **Late nights and tea** – Lilith starts visiting the studio at odd hours, bringing tea. She asks him to explain keel dynamics just to hear him talk. He doesn’t notice her staring at him instead of the diagrams. 
 - **The blanket scene** – One night, Lilith falls asleep on the studio couch waiting for him to finish work. John drapes a blanket over her and works quietly so as not to wake her. When she stirs, she pretends to still be asleep, smiling faintly.
 - **The 5-metre prototype** – Three months later, a scale prototype is ready. On test day at the lake, John insists on sailing it himself. The team is nervous; Lilith watches from the shore with white knuckles.
 - **Success and a spin** – The prototype glides perfectly. John whoops like a child, sails to shore, and in a burst of adrenaline, lifts Lilith and spins her around. She laughs—a genuine, unguarded laugh—and when he sets her down, their eyes meet for a charged, silent moment.
-
-I’ve expanded the shipyard phase into a full arc with a new rival family (the Blackthorns), a seduction plot, John’s obliviousness, and a public romantic declaration that deepens the relationship. The rest of the outline is adjusted accordingly. Here’s the updated sequence from the prototype success onward, with every bullet a scene.
-
 
 ### Arc 4: From Sketch to Reality (Building Together)
 

@@ -1003,3 +1003,254 @@ Whatever she was about to say, I knew it would change everything.
 
 
 
+
+
+
+
+
+
+
+Lilith's eyes moved from the superyacht blueprint to my face. The silence stretched, and I became acutely aware of my own heartbeat, which had apparently decided to relocate to my throat.
+"I prefer the big one," she said.
+The words didn't make sense at first. They hung in the air like a foreign language I hadn't learned yet.
+"I'm sorry?"
+"The big one." She tapped the superyacht with one manicured finger. "The forty-two-metre performance sloop with the telescopic keel and the panoramic salon and the tender garage. I prefer it to the twenty-metre cruiser."
+I opened my mouth. Closed it. Opened it again. "You—but—the cost. I said thirty to fifty million. That's not—I was joking. The second blueprint was a joke. I literally called it 'an escalation I couldn't stop.' It's not a real proposal."
+"You spent forty-eight hours drawing it."
+"Because I'm insane. We've established this. The shopping cart. The cheese-rolling. The inflatable flamingo. I do things without thinking. This was just another—"
+"John." She cut me off with the calm, surgical precision of someone who had ended boardroom arguments with a single word. "When you described this boat, your entire body changed. Your posture. Your breathing. The way you held your hands. I've watched you do a hundred things in the past four months, and I've never seen you like that. You weren't impulsive. You weren't chasing a whim. You were remembering something you've wanted for longer than you've been alive in this world."
+I stood very still. The blueprint shimmered under the office lights.
+"The twenty-metre boat is practical," she continued. "It's sensible. It's the kind of proposal a husband brings when he's trying to be reasonable. But you're not reasonable, John. You've never been reasonable. The man who rode a shopping cart through my hallways and commissioned a portrait of himself on an inflatable flamingo does not pitch sensible boats. He pitches the impossible one. The one that makes his eyes go distant and his voice go soft. The one that means something."
+I swallowed. "I don't know what to say."
+"Say you'll build it."
+"The cost—"
+"Is irrelevant."
+"Thirty to fifty million is not irrelevant."
+"It is to me." She leaned back in her chair, and for a moment, she looked less like a CEO and more like a woman who had just solved a puzzle she'd been working on for months. "But there's a condition."
+I braced myself. Of course there was a condition. There was always a condition. In her world, everything was negotiation, leverage, careful calculation. "What condition?"
+"I'm not giving you the money."
+The words hit me like a physical blow. For a second, I couldn't breathe. The superyacht, which had been shimmering with possibility, suddenly seemed to dim on the page. I'd been so close. She'd said she preferred it. She'd said the cost was irrelevant. And now—
+"You signed a contract," Lilith said. "Paragraph fourteen, subsection C: 'The groom will not engage in any paid employment or financial management, and all material needs will be provided for by the bride.' Do you remember?"
+"I remember." My voice came out hoarse. "It's the clause that says I'm not allowed to think about money."
+"Exactly. You're not allowed to manage money. You're not allowed to worry about money. You're not even allowed to know where the money comes from. That's my responsibility. That's the agreement you proposed, and that I accepted."
+"I don't understand."
+She stood up. Walked around the desk. Leaned against it, arms crossed, close enough that I could smell her perfume—something subtle, green, like crushed leaves after rain.
+"What I'm saying," she said, "is that if you want to build this boat, you should build it. Start the project. Hire the team. Order the materials. Design the impossible thing you drew on this paper. And don't think about the money at all. Not once. Not ever. Let the bills come to me. Let the costs be my problem. Honour your side of the agreement, John. Be the gloriously useless kept man who doesn't lift a finger. And let me be the wife who provides whatever you want, whenever you want it. Exactly like you asked for."
+The realisation hit me all at once, like a wave I hadn't seen coming.
+She wasn't saying no. She wasn't imposing a condition. She was giving me the exact opposite: total, absolute, unconditional freedom. The freedom to pursue the dream I'd carried through two lifetimes without ever once worrying about the cost. The freedom to build something that didn't exist in this world and might never make a single dollar in return.
+She was giving me the superyacht. And she was doing it in a way that respected the absurd contract that had started this whole thing.
+"You're serious," I said.
+"I'm always serious."
+"You just told me to spend fifty million dollars on a sailboat in a world where sailing doesn't exist."
+"I told you to start a project. I didn't tell you to spend anything. I don't discuss finances with my husband." She almost smiled. "It's in the contract."
+I stared at her. At the forest-green eyes that had looked at my absolute uselessness and seen a feature, not a bug. At the woman who had said "OK" to a stranger's ridiculous demands and built a marriage out of the wreckage. At the wife who had watched me float out to sea on an inflatable flamingo and laughed like it was the best thing she'd ever seen.
+Something broke open inside me. Something that had been locked tight since the day I'd died at my desk, face-down on a keyboard, a lifetime of spreadsheets and overtime and buried dreams still burning behind my eyes.
+I didn't think. I didn't plan. I just moved.
+I threw my arms around her.
+"Thank you," I said, the words muffled against her shoulder. "Thank you, thank you, thank you—"
+Lilith went rigid. Every muscle in her body locked up at once, like a system encountering an input it had no protocol for. Her arms stayed at her sides. Her breathing stopped. For a long, horrible moment, I thought I'd made a catastrophic mistake.
+Then, slowly, awkwardly, her hand came up and patted my back. Twice. The kind of pat you'd give a large, overexcited dog that had jumped up on you and didn't know its own strength.
+"There, there," she said, her voice strained with an emotion I couldn't identify. "That's... quite alright."
+I should have let go. I should have apologised. But the joy was still surging through me, and her awkwardness was so unexpected, so human, so completely at odds with the polished CEO persona she wore like armour, that I just held on tighter.
+"You have no idea," I said, pulling back just enough to look at her face. Her eyes were very wide. Her cheeks were very pink. "You have no idea what this means to me. The sailing. The boat. The freedom. All of it. I died—metaphorically, the office drone—I died wanting this. And you're giving it to me. You've been giving me everything since the day we met, and I never—I didn't—"
+I stopped. I was rambling. She was very close. Her hand was still frozen mid-pat on my back.
+I let go, stepping back with my hands raised. "Sorry. I got excited. The boat. The whole 'build it yourself, don't worry about the money' speech. That was—that was the nicest thing anyone's ever said to me. In either life. And I don't know the protocol for thanking someone who just gave you a fifty-million-dollar dream, so I defaulted to hugging."
+"The protocol," Lilith said, her voice slightly higher than usual, "is typically a verbal expression of gratitude."
+"Right. Noted. I'm verbally expressing gratitude. Thank you. Immensely. Profoundly. I'll name the boat after you."
+"That won't be necessary."
+"I'll name the tender after you. The little boat. The boat inside the boat."
+"John."
+"Yes?"
+She was still leaning against the desk, her arms still crossed, but something had shifted. Her composure, which had cracked during the hug, was slowly reassembling itself—but not completely. There was a warmth in her eyes now. A softness that hadn't been there before.
+"Go start your project," she said.
+I didn't need to be told twice. I grabbed the superyacht blueprint from the desk—the sensible one could stay, I didn't care about the sensible one anymore—and ran for the door.
+"Thank you!" I shouted over my shoulder. "I'll design the best boat this world has ever seen! It'll have sails! So many sails! The sailiest!"
+I was halfway through the door when I glanced back. Just for a second. Just to make sure she was still real.
+Lilith hadn't moved. She was still leaning against her desk, but her hand had drifted up to her chest, pressing flat against her sternum like she was checking her own heartbeat. Her expression was no longer composed. It was startled. Unguarded. The face of a woman who had been prepared for negotiations and financial projections and calculated risk assessments, and had instead received a hug from her accidental husband and discovered, to her apparent horror, that she'd felt something.
+Her lips moved. I couldn't hear the words, but they looked suspiciously like "What was that?"
+Then I was through the door and sprinting down the corridor, my flip-flops slapping against the marble with a rhythm that sounded like victory. I passed an assistant who flattened herself against the wall. I passed a maid carrying linens who didn't even flinch. I passed a potted fern that had seen worse.
+I had a boat to build. A dream to resurrect. A wife who had just given me the keys to an impossible future.
+And somewhere behind me, in an office full of contracts and careful calculations, Lilith Roseworth was standing perfectly still with one hand over her racing heart, trying to figure out how a man in a surfboard shirt had managed to do what no business rival had ever accomplished.
+He had disarmed her completely.
+And he hadn't even been trying.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+I sprinted through the manor like a man possessed, the superyacht blueprint clutched to my chest and my flip-flops making a sound that resembled enthusiastic applause. The staff I passed didn't even look up anymore. A man in a surfboard shirt running full-tilt through the east corridor at ten in the morning was, by month four, roughly as noteworthy as a lightbulb flickering.
+I needed a room. A big one. Somewhere I could spread out the blueprints, argue with myself at volume, and generally make a mess that wouldn't be politely tidied away by a team of fifty-six people who considered disorder a personal affront.
+The east wing was full of rooms I'd never used. I'd poked my head into a few during my shopping-cart phase, but most of them had been declared "boring" and abandoned to their eternal, dustless silence. Now I tore through them with purpose, flinging open doors and rejecting each space with increasing desperation.
+Too small. Too dark. Too many priceless antiques I'd definitely destroy. Too close to the kitchen, which would distract me. Too far from the kitchen, which would starve me. Too many windows—I'd just stare outside. Not enough windows—I'd feel like I was in a tomb.
+And then I found it.
+It was at the end of a corridor I'd never walked down, behind a set of double doors so tall they could have accommodated a giraffe with posture issues. I pushed them open and stepped into a space that stopped me dead.
+A ballroom. An actual, honest-to-god ballroom, complete with a vaulted ceiling painted with clouds that matched my bedroom, crystal chandeliers wrapped in protective cloth, and a floor of inlaid wood that formed geometric patterns too complex for my brain to process. It was enormous. It was abandoned. It was coated in a thin layer of dust that suggested the Roseworth family had not hosted a dance here since approximately the invention of electricity.
+It was perfect.
+"Mrs. Hardwick!" I shouted, not knowing if she was anywhere nearby but trusting that she would materialise anyway.
+She materialised. "Sir?"
+"I need this room converted into a design studio. Naval architecture. Desks—big ones, at least five. Whiteboards—entire walls of whiteboards. An espresso machine. Industrial-grade. The kind that sounds like a jet engine and makes coffee strong enough to dissolve a spoon. Also, I'm going to need a couch. A comfortable one. For thinking."
+She surveyed the ballroom with the calm, evaluative eye of a general assessing a battlefield. "The chandeliers, sir?"
+"Leave them. They're inspiring."
+"Very good. I'll have a team start immediately."
+The team started immediately. By that evening, the ballroom had been transformed. Five massive desks stood in a semicircle facing a wall that had been converted into floor-to-ceiling whiteboards. The espresso machine sat in one corner, gleaming and vaguely threatening. A couch that looked like it had been stolen from a luxury spaceship occupied another corner, draped in blankets because sometimes thinking required being horizontal. The chandeliers had been uncovered and now threw soft, golden light across the geometric floor.
+I stood in the centre of it all, the superyacht blueprint spread across the largest desk, and felt something I hadn't felt since before I died: anticipation.
+Now I needed a team.
+---
+I found Mrs. Hardwick the next morning in her office—a small, ruthlessly organised room near the kitchens that I'd never seen before.
+"Mrs. Hardwick, I need experts."
+"What kind of experts, sir?"
+"The best naval architects in the world. A hydrodynamicist—someone who understands how water moves around hulls. A structural engineer who knows composite materials. An interior designer who specialises in luxury vessels. And a project manager who's built things that shouldn't be buildable. Five people total. The absolute top of their fields."
+She didn't blink. "Any preference on gender, sir?"
+I paused. "Is there a reason I would have a preference?"
+"In this world, sir, most experts in technical fields are women. If you specifically require male candidates, the search may take longer."
+Right. The ratio. I kept forgetting. "No preference. I want the best, whatever gender they are. Though I'm guessing, statistically, that means I'm getting five women."
+"Almost certainly, sir."
+"Excellent. Find them. Hire them. Tell them they're going to build the first performance superyacht this world has ever seen, and that money is not a concern."
+"May I tell them who they'll be working for?"
+"John Roseworth, kept man, former office drone, current surfboard-shirt enthusiast."
+Mrs. Hardwick's expression didn't change, but I saw something flicker in her eyes. "I suspect 'husband of Lilith Roseworth' may carry more weight."
+"Use whatever works. Just get them here."
+She nodded once and began typing into her tablet. The search, I would later learn, involved contacting fourteen different firms across eight countries, vetting thirty-seven candidates, and convincing five of the most sought-after professionals in their respective fields to drop everything and fly to a manor in the middle of nowhere to work for a man whose primary qualification was "accidentally married well."
+They arrived one week later.
+---
+I was in the design studio—I'd taken to calling it the Command Centre, though the staff stubbornly referred to it as "the east ballroom"—when Mrs. Hardwick escorted them in. Five women, all older than me, all carrying the particular energy of people who were used to being the smartest person in any room they entered.
+The first was Dr. Anna Voss, hydrodynamicist. She was tall, silver-haired, with the weathered face of someone who had spent decades staring at wave tanks and challenging the ocean to do its worst. She'd published seventeen papers on hull resistance and had apparently designed half the military vessels currently in service.
+The second was Yuki Tanaka, naval architect. Younger than Dr. Voss, with sharp features and sharper eyes, and a reputation for solving problems that other architects deemed impossible. She'd designed cargo ships, research vessels, and one extremely classified project she wasn't allowed to discuss.
+The third was Dr. Miriam Okafor, structural engineer. Nigerian-born, German-trained, with the calm, deliberate voice of someone who calculated safety margins for fun. She specialised in composite materials—carbon fibre, fibreglass, the exotic laminates that made modern vessels both light and indestructible.
+The fourth was Elena Rossi, interior designer. Italian, elegant, with a portfolio that included some of the most luxurious motor yachts on the planet. She wore a silk scarf that probably cost more than my entire wardrobe and looked around the ballroom with an expression of polite, European judgement.
+The fifth was Svenja Lindström, project manager. Swedish, broad-shouldered, with the no-nonsense bearing of someone who had built things in shipyards from Gothenburg to Singapore and had never once accepted the word "impossible."
+They stood in a line, five women at the absolute peak of their professions, looking at a man in a shirt covered in neon green palm trees.
+"Ladies," I said, spreading my arms. "Welcome to the Command Centre. I'm John Roseworth. I have no qualifications, no experience, and no business being in charge of this project. But I have a vision, and apparently unlimited funding, and I'm going to need all of you to make it real."
+Silence. Dr. Voss raised an eyebrow. Svenja crossed her arms. Elena's scarf seemed to flutter in a breeze of its own scepticism.
+"Before you write me off as a rich husband with a hobby," I continued, "let me show you what I've got."
+I unrolled the superyacht blueprint across the central desk. The five women leaned in. For a long moment, no one spoke.
+"This hull form," Dr. Voss said slowly, her finger tracing the waterline. "These aren't random lines. This is a performance cruiser profile. The prismatic coefficient here—"
+"I was aiming for something around 0.58 to 0.62," I said. "Enough volume forward to prevent hobby-horsing in a seaway, but fine enough aft to keep the wake clean. The bow sections are slightly U-shaped rather than V-shaped—better for slamming resistance without sacrificing too much waterline length."
+Dr. Voss looked up at me. Her expression had shifted from scepticism to something more interesting. "How do you know what a prismatic coefficient is?"
+"Internet rabbit holes. Lunch breaks. A decade of wanting something I couldn't have." I tapped the keel. "Telescopic lifting keel. The bulb needs to be optimised for both configurations—down for offshore stability, up for shallow-water access. That's going to be a nightmare to engineer."
+"It's impossible," Dr. Okafor said, but her voice was thoughtful rather than dismissive. "The structural loads at the keel root, with a telescopic mechanism—"
+"That's why I need you. You've done composite structures for military applications. If anyone can figure out how to make a carbon-fibre telescopic keel that doesn't tear itself apart, it's you."
+She looked at me with new eyes.
+"The sail plan," Yuki murmured, tracing the rig. "Single-mast sloop. But the mast height—this would need a hydraulic furling and reefing system. Manual handling would be out of the question at this scale."
+"I was thinking captive reel winches. Hydraulic. Push-button operation. The mainsail furls into the mast, the headsails furl onto the forestay. One person could theoretically sail her from the helm station."
+"Theoretically," Yuki repeated. "You've thought about this."
+"I've thought about almost nothing else for a week."
+Svenja, the project manager, had been silent throughout. Now she stepped forward and planted both hands on the desk. "This vessel would require materials that don't exist yet. Construction techniques that haven't been developed. A shipyard that would need to be retooled from scratch. The timeline would be—"
+"Two years," I said. "Maybe three. I don't care. The timeline is whatever it needs to be. The budget is whatever it takes. I'm not asking you to work miracles for free. I'm asking you to work miracles with infinite resources. There's a difference."
+Svenja stared at me for a moment. Then the corner of her mouth twitched. "I've never had an infinite budget before."
+"I've never had any budget before. We'll learn together."
+Elena, the interior designer, had been quiet up to this point, studying the layout with her arms crossed. Now she spoke. "The full-beam owner's suite. These sightlines—you want the bed to face the water, not the wall."
+"Yes."
+"And the bathroom. You've sketched a freestanding tub with a view port. That's not practical."
+"I know."
+"It'll be a nightmare to plumb."
+"I know."
+She looked at me, and her elegant, judgemental expression cracked into something that might have been the beginning of a smile. "I like it."
+I looked around at the five of them—the hydrodynamicist, the architect, the engineer, the designer, the builder. They were still sceptical. They were still cautious. But the scepticism had shifted. It was no longer "who is this idiot?" and had become "who is this idiot, and why does he know what he's talking about?"
+"Here's the deal," I said. "I have the vision. I know what I want this boat to be, and I know roughly how it should work. But I don't have the expertise to make it real. That's where you come in. I'm not going to pretend I know more than you. I'm going to tell you what I want, and you're going to tell me if it's possible, and if it's not, you're going to figure out what is. This is a collaboration. Not a dictatorship."
+"A kept man who doesn't dictate," Dr. Voss said dryly. "Refreshing."
+"I'm a very refreshing person. I own forty-seven Hawaiian shirts and have no sense of shame. Now—shall we get to work?"
+---
+What followed was the most exhilarating three weeks of my life.
+The Command Centre became the beating heart of the manor. The whiteboards filled with equations and diagrams and the hieroglyphic shorthand of naval architecture. The espresso machine ran continuously, its jet-engine growl providing a constant soundtrack. The five experts—who I'd started calling the Fleet, partly because it sounded impressive and partly because it annoyed Svenja—settled into their roles with the focused intensity of women who had finally been given a problem worth solving.
+I was there every day. Sometimes for hours. Sometimes for entire days that blurred into nights. I'd arrive in the morning—walking on my own two feet at first, but that got boring quickly—and throw myself into the work with an energy I hadn't felt since before the spreadsheets crushed my soul.
+The Fleet started tracking my arrivals. On day four, I walked in balancing on a large rubber exercise ball, rolling myself forward with small, careful steps while clutching a breakfast pastry. Dr. Voss looked up, blinked once, and said, "Noted."
+"What's noted?" I asked.
+"Nothing."
+On day six, I arrived on roller skates. The geometric floor was exceptionally smooth, and I'd discovered a pair of inline skates in a closet during one of my earlier explorations. I glided through the double doors with a half-eaten apple in one hand and a coffee in the other, executing a wobbly spin that nearly sent me into a whiteboard. Yuki caught the whiteboard before it toppled. Elena caught my coffee. Neither of them commented.
+On day eight, I arrived carried by ten maids. This required explanation.
+I'd been lying on the couch in my rooms, contemplating hull resistance coefficients, when the thought occurred: *I don't want to walk*. This was not an unusual thought. What was unusual was the follow-up: *I want to be transported like a pharaoh.* So I'd summoned a team of maids, explained the concept of a sedan chair, and within an hour had been hoisted onto an improvised platform of polished wood and white linen. Ten maids—five per side—carried me through the corridors while I reclined on cushions and ate grapes. Actual grapes. The kitchen had provided them specifically.
+When the double doors opened and I floated in on my makeshift palanquin, Svenja looked up from a materials spreadsheet and said, absolutely deadpan, "That's ten points."
+"For what?" I asked.
+But Yuki cut in. "No, carrying is impressive, but it's passive. The roller skates showed more personal risk. Fifteen points for the skates."
+I was lowered gently to the floor. The maids retreated with the kind of silent efficiency that suggested they'd already added "human palanquin" to their professional repertoire.
+"Are you betting on my arrivals?"
+"Yes," said all five women simultaneously.
+"What are the stakes?"
+"A bottle of single malt Scotch," Elena said, not looking up from her fabric samples. "I'm currently in the lead. The roller skates were my prediction."
+"You predicted I'd arrive on roller skates?"
+"I predicted you'd arrive on something wheeled. The skates were a bonus."
+I stared at her. Then at the others. Dr. Voss shrugged. "We needed entertainment. The keel calculations are giving us migraines."
+I couldn't even be offended. I was too impressed. "Fine. But I want in on the betting pool."
+"You can't bet on your own arrivals. That's a conflict of interest."
+"Then I'll bet on when someone finally snaps and throws something at me."
+"No bet," Yuki said. "That's inevitable."
+On day nine, I arrived carrying a maid. This was the quid pro quo—she'd carried me on day eight, so now I was carrying her. She was a small woman named Beatrice who had worked in the laundry for six years and had apparently never been carried anywhere by anyone. She spent the entire journey giggling into her hands while I staggered through the corridors, my knees protesting and my flip-flops slapping against the marble. I dropped her off at the laundry room door, accepted a round of applause from the other laundry staff, and arrived at the Command Centre fifteen minutes late and sweating through my pineapple shirt.
+"Carrying a maid," Svenja announced. "Unprecedented. I'm giving that twenty points."
+"It wasn't for points," I said. "It was for justice."
+"That's what makes it worth twenty points."
+On day twelve, I arrived backwards. I simply walked through the double doors backwards, crossed the entire ballroom backwards, and sat down at my desk backwards, all while maintaining eye contact with Dr. Voss, who watched with the expression of a woman who had seen many strange things in her life and was adding this to the list.
+"Any reason?" she asked.
+"Felt right."
+On day fourteen, I arrived on a unicycle. This was a mistake. I'd never ridden a unicycle before. I'd found it in a storage room near the gym and decided, with the confidence of a man who had never been injured in this life, that I could teach myself in an afternoon. I could not. I made it approximately four metres into the ballroom before crashing into a whiteboard, erasing half an equation with my face, and lying on the floor laughing while Miriam helped me up.
+"Negative five points," Elena said.
+"There are no negative points."
+"There are now."
+---
+But it wasn't just the arrivals. The maids, who cleaned the Command Centre every night while we slept, started finding things I'd hidden.
+It started small. A rubber duck with a tiny captain's hat, perched on top of the espresso machine. No one knew where it had come from. I claimed innocence with the wide-eyed sincerity of a man who was absolutely guilty.
+Then the messages appeared. Written in dry-erase marker on the corner of a whiteboard, in handwriting that was unmistakably mine: *Miriam—the keel root is haunted. Use garlic. —J.*
+Miriam found this at 7 AM and stared at it for a full minute before adding her own note beneath: *Garlic is not a structural material. —M.*
+The next morning, there was a response: *That's what the garlic industry wants you to think. —J.*
+Then there was the pineapple. A single, fresh pineapple, placed in the exact centre of Elena's desk, with a sticky note attached: *This is your emotional support pineapple. It believes in you. —Management.*
+Elena kept it. It sat on her desk for the entire project, slowly ripening, occasionally being dressed in tiny scarves that mysteriously appeared overnight.
+The Fleet, I learned, had a group chat without me. This was entirely reasonable—I would have had a group chat without me too—but I discovered its existence when Svenja accidentally left her tablet unlocked and I saw a message from Yuki: *He arrived on a skateboard today. While eating soup. The soup did not spill. I'm terrified and impressed.*
+I added a note to their whiteboard the next morning: *I know about the group chat. I respect it. But I'm coming for Elena's Scotch. —The Management.*
+They didn't stop the group chat. They did, however, start a second one that included me. The first message, from Dr. Voss, read: *Welcome to the Fleet. Don't make us regret this.*
+---
+Through all of this—the arrivals and the bets and the rubber ducks and the emotional support pineapple—the work continued. The superyacht moved from concept to calculations. Dr. Voss refined the hull form using computational fluid dynamics that I barely understood but deeply admired. Yuki translated the sail plan into structural reality, working with Miriam to ensure the mast wouldn't tear itself out of the deck in a storm. Elena began sourcing materials for an interior that would be both luxurious and lightweight, a balance that required constant negotiation with physics. Svenja coordinated everything, her spreadsheets growing to monstrous proportions, her phone calls with shipyards occurring at all hours.
+And me? I led the creative vision. I sketched and revised and gestured wildly at whiteboards. I described the feeling I wanted—the way the salon should feel like floating in a glass bubble, the way the owner's suite should make you feel like the ocean was your bedroom. I made decisions about things I had no business deciding, and when I was wrong, the Fleet told me, and I adjusted. It was collaboration. It was creation. It was the most meaningful work I'd done in either life.
+Lilith started visiting. She never announced herself. She'd simply appear in the doorway, dressed in business armour, fresh from some corporate conquest, and stand there watching. The first few times, I didn't notice. I was too deep in the work. But gradually, I became aware of her presence—a stillness at the edge of the chaos, a pair of forest-green eyes tracking my movements with an expression I couldn't read.
+One evening, after the Fleet had gone to dinner and the Command Centre was quiet, she stepped inside. She was still in her blazer, her heels clicking softly on the geometric floor.
+"You're different here," she said.
+"Different how?"
+"More." She paused, searching for the word. "Present. You've always been present, but it was a scattered presence. Distracted. Like you were entertaining yourself while waiting for something. In here, you're not waiting. You're doing."
+I looked around at the whiteboards, the blueprints, the coffee cups and the pineapple with its tiny scarf. "This is what I used to do," I said. "In my imaginary past life. Not the boats. But the... focus. The problem-solving. The feeling of making something that didn't exist before." I shrugged. "I was good at my job, even if it was killing me. I forgot what that felt like."
+"You're good at this too," Lilith said. "I've been reading the Fleet's progress reports. Svenja sends them to Ms. Miller. They're impressed with you."
+"They're impressed with the budget."
+"They're impressed with you. Dr. Voss called you 'unexpectedly competent.' Yuki said you have 'an intuitive grasp of hull dynamics that's frankly annoying in a layperson.' Elena wants to adopt you."
+"Elena has tried to adopt me. She says my fashion sense is a cry for help."
+Lilith smiled. It wasn't the startled smile I'd seen after the hug, or the amused smile from the gala balcony. It was something quieter. Warmer.
+"I'm glad you're doing this," she said. "The boat. The studio. The strange arrivals and the bets and the... is that a pineapple wearing a scarf?"
+"That's Elena's emotional support pineapple. His name is Giuseppe. He's part of the team."
+"Of course he is." She shook her head, but the warmth didn't fade. "Dinner tonight?"
+"I'd like that."
+She nodded and turned to leave. At the doorway, she paused. "John? The hug last week. I wasn't—I didn't respond well."
+"You responded fine. You patted my back. Twice. It was very dignified."
+"It was awkward."
+"It was human. I liked it."
+She looked at me for a long moment. Her hand drifted toward her chest, the same gesture I'd seen in her office, then stopped. "Goodnight, John."
+"Goodnight, Lilith. Say goodnight to Giuseppe."
+She didn't say goodnight to Giuseppe. But she was smiling when she left.
+I turned back to the whiteboards, to the half-finished calculations and the sketches of a boat that didn't exist in this world yet. The autumn night pressed against the windows, dark and cool, and somewhere in the distance I could hear the faint rhythm of the lake against the shore.
+I picked up a marker and added another note to the whiteboard: *Phase 2: prototype. Tomorrow. Bring enthusiasm. —The Management.*
+Then I went to dinner, my flip-flops slapping against the marble, my heart beating with the steady, unfamiliar rhythm of a man who had finally, accidentally, found something worth doing.
+
+
+
+
+
+
+
+
+
+
+
+
+
