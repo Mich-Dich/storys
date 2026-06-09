@@ -81,3 +81,16 @@ I like it verry much, but I want ti change 2 small detains.
 
 rewrite the last section with my comments
 
+
+
+
+
+
+
+The [agony engine] got John thinking. the output was pathatic but the torture was exelent, what if you could have both. John wants to use a lower realm as the next [agony engine], the entire planet.
+John though about it for a moment and then realized he could create a world that birthed many protagonists in the novels he once scrolled through.
+john wanted to create a place where suffering is brutal and normal, but manipulating a cultivation world wven on of the lower realm like that would invide critisisum upon the Doe family (not openly of course, the Doe's are to powerful). So John faught about selected a world without Qi, but then the livespans would be to low and true eternal suffering was impossible.
+
+John could select a world and plunge it into an apokolypse while also providing Qi. He would supply both good and bad. It would no longer be a simple [Agony engine] it would be an [Agony world].
+From his previous experiments and pastime he create a few worlds that held monsters far moth wishes and blood thursty then evolution could produce while still having a a balanced ecosystem. He could remove some of the limiters to make them more vitous and breed faster, and the overflow that would harm the ecosystem would be put into portals that open on the [Agony world]. Even just the most basic of resources from any lower realm would be wonders for a world without Qi.
+
